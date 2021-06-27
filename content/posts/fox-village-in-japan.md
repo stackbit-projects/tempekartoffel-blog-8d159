@@ -47,7 +47,7 @@ seo:
       relativeUrl: true
 layout: post
 ---
-\<div markdown="1">
+\<a title="Test" href="www.google.de">sdadas\</a>
 
 Apparently, Japan is covered in magical and irresistibly cute animal sanctuaries. **The Shrines of Ise** have been celebrated as the prototype of Japanese architecture. Largely of wood, traditional housing and many temple buildings see the use of tatami mats and sliding doors that break down the distinction between rooms and indoor and outdoor space.\<a title="Japan" href="http://en.wikipedia.org/wiki/Japan" target="\_blank">Japan’s\</a> traditional culture gradually weakened from 1945 on, individual Japanese began to exercise some personal choice in their private lives. But the newly mandated freedoms had a minimal effect on a number of key institutions.\<a title="Fox" href="https://en.wikipedia.org/wiki/Fox" target="\_blank">Source\</a> }\<a title="Ise Grand Shrine" href="http://en.wikipedia.org/wiki/Ise_Grand_Shrine" target="\_blank">Source\</a> }
 
