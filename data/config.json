@@ -51,7 +51,7 @@
                 "url": "https://instagram.com/pavec.lucid",
                 "style": "icon",
                 "icon_class": "instagram",
-                "new_window": false,
+                "new_window": true,
                 "no_follow": false,
                 "type": "action"
             }
