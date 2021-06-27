@@ -1,7 +1,7 @@
 ---
 title: Basic Rules For Walking In The Mountains
 subtitle: lorem-ipsum
-date: '2020-04-09'
+date: '2021-04-09'
 thumb_img_alt: A man standing on a rock cliff overlooking a river
 excerpt: >-
   Hiking is sometimes referred to as such. This specifically refers to difficult
