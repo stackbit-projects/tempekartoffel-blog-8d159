@@ -86,9 +86,4 @@ Kapel berbentuk *Dome* gaya *Gothic* di bangun mengelilingi  gereja Carolingian 
 
 ## 8.) Gothic & Carolingian Walls
 
-Masih di lantai satu dekat organ dan bagian koor, kalian masih bisa lihat dinding gaya Gothic dan Carolingian katedral Aachen. 
-
-
-
-
-
+Masih di lantai satu dekat organ dan bagian koor, kalian masih bisa lihat dinding gaya Gothic dan Carolingian katedral Aachen.
