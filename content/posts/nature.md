@@ -1,5 +1,5 @@
 ---
-title: 'Tur Virtual '
+title: Tur Virtual Ke S
 subtitle: >-
   Beberapa barang penting yang ada di dalam katedral Aachen yang harus kalian
   ketahui
