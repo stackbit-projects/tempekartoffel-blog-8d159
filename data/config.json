@@ -1,11 +1,11 @@
 {
-    "title": "Stackbit Fjord Theme",
-    "palette": "yellow",
+    "title": "Tempe & Kartoffel",
+    "palette": "blue",
     "header": {
         "title": "Tempe & Kartoffel",
         "tagline": "Our little blog",
         "logo_img": "images/Method Draw Image(1).png",
-        "logo_img_alt": "Fjord Logo",
+        "logo_img_alt": "Tempe&Kartoffel Logo",
         "background_img": "images/IMG_6447.JPG",
         "has_nav": true,
         "nav_links": [
@@ -28,13 +28,6 @@
         "has_social": true,
         "social_links": [
             {
-                "label": "Twitter",
-                "url": "https://twitter.com/",
-                "style": "icon",
-                "icon_class": "twitter",
-                "new_window": true
-            },
-            {
                 "label": "Instagram",
                 "url": "https://www.instagram.com/littlelarkspur",
                 "style": "icon",
@@ -42,8 +35,15 @@
                 "new_window": true
             },
             {
-                "label": "paveclucid-instagram",
-                "url": "https://instagram.com/pavec.lucid",
+                "label": "Youtube",
+                "url": "https://www.youtube.com/channel/UCNg91iZXf5_ivyvurzA84yw",
+                "style": "icon",
+                "icon_class": "youtube",
+                "new_window": true
+            },
+            {
+                "label": "stefanlucid-instagram",
+                "url": "https://instagram.com/stefan.lucid",
                 "style": "icon",
                 "icon_class": "instagram",
                 "new_window": true,
@@ -55,5 +55,5 @@
     "footer": {
         "content": "&copy; Stackbit. All rights reserved. This Jamstack site was created with <a href=\"https://www.stackbit.com/?utm_source=deployed-footer\" target=\"_blank\" rel=\"noopener\">Stackbit</a>. Create yours <a href=\"https://app.stackbit.com/create?theme=fjord&utm_source=deployed-footer\" target=\"_blank\" rel=\"noopener\">now</a>"
     },
-    "domain": "https://tempekartoffel-blog-8d159.netlify.app"
+    "domain": "https://tempeandkartoffel.life"
 }
