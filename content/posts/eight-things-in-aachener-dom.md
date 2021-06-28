@@ -71,6 +71,8 @@ Terletak di bagian bawah Oktagon. Dalam bahasa italia Pala d'Oro “golden altar
 
 ## 3.) Barbarossa Chandelier&#xA;
 
+![](https://i1.lensdump.com/i/ZQoAqk.jpg)
+
 Lampu gantung emas Barbarossa merupakan sebuah objek hasil donasi yang diberikan oleh Frederick I untuk merayakan kanonisasi Charlemagne.  Lampu gantung ini dibuat di Aachen pada tahun 1165-1184.
 
 ## &#xA;&#xA;4.) Shrines of Charlemagne
