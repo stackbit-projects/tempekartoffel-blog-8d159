@@ -45,20 +45,30 @@ seo:
       relativeUrl: true
 layout: post
 ---
-\<a title="Test" href="www.google.de">sdadas\</a>
+Beberapa minggu yang lalu kita berdua buat janji untuk ketemuan dengan teman kita. Akhirnya baru terlaksana hari ini. Mereka *suggest* main minigolf di pinngiran kota Aachen. Stefan udah sering main minigolf, tapi aku belum pernah sama sekali. Jadi hari ini adalah pertama kalinya aku main. Jarak tempat ini dari rumah kita adalah 5,3 km sekitar 30 menit naik sepeda. Tapi kita makan hampir satu jam buat sampai kesini. The summer heat and the hills was- *Man..man...man..* jadi ya gitu mau main aja disuruh pemanasan dulu. Mana sepeda saya ada keranjangnya gede banget.
 
-Apparently, Japan is covered in magical and irresistibly cute animal sanctuaries. **The Shrines of Ise** have been celebrated as the prototype of Japanese architecture. Largely of wood, traditional housing and many temple buildings see the use of tatami mats and sliding doors that break down the distinction between rooms and indoor and outdoor space.\<a title="Japan" href="http://en.wikipedia.org/wiki/Japan" target="\_blank">Japan’s\</a> traditional culture gradually weakened from 1945 on, individual Japanese began to exercise some personal choice in their private lives. But the newly mandated freedoms had a minimal effect on a number of key institutions.\<a title="Fox" href="https://en.wikipedia.org/wiki/Fox" target="\_blank">Source\</a> }\<a title="Ise Grand Shrine" href="http://en.wikipedia.org/wiki/Ise_Grand_Shrine" target="\_blank">Source\</a> }
+> The summer heat and the hills was- *Man..man...man..* 
 
-> The fox never found a better messenger than himself.
+Sedangkan dua teman kita udah sampe duluan. Kita emang janjian buat ketemuan langsung di tempat minigolf. Karena ya beda arah rumah kita, jadi niar lebih cepat. Tapi sama aja haha wong kita lelet. Pake nyalahin musim panas sama topografi kota Aachen lagi. Tapi setelah sampai semua keringat kita itu terbayarkan. Tempatnya cantik banget. 
 
-As the programming of
+![](/\_static/app-assets/IMG\_0744%5B1%5D.JPG)
 
-Japan’s educational, economical and political systems remained hidebound bulwarks of traditional behavior. The politically guided economic system in particular was able to generate enormous power that could be directed with the precision of a laser beam.
+Namanya itu *Gut Entenfuhl. *Di bagian depan ada restorannya, terus baru di bagian belakang itu lapangan minigolfnya. Tapi sebenarnya kalau dari arah masuk kita akan lihat lapangan minigolfnya dulu sih. Baru parkiran mobil, baru jalan masuk ke restoran. Jadi kaya setengah lingkaran gitu. Tempatnya luas banget. Ada tempat bermain anak-anak, danau kecil, dan padang hijau. Mungkin dinamain *Entenfuhl* karena ada angsa kali ya. Kan dalam bahasa Jerman angsa itu *Gans* masih satu keluarga sama *Enten *atau bebek. Ngasal banget ya haha next time kalau kesana aku tanya deh, soalnya pengen kesana lagi. Seru banget, walau kesananya PR abis. Minigolf ini memang cuma buka waktu musim panas aja..ya kali mau main di luar pas *winter*, yang ada masuk angin hehe. Minigolf-Saison ini udah buka sejak bulan Maret tahun ini sampai nanti tutup bulan November. Buka setiap ahri jam 11:00-19:00 tapi hari Rabu sama pas *Christ Himmelfahrt* mereka tutup. Harga tiket masuknya juga gak terlalu mahal, apalagi kalau kamu *student. *Bisa banget pake kartu pelajar kita. Ini harga tiket buat masuk dan main 18-*Loch-Runde *ya, karena ada delapan belas trek minigolf yang harus kita mainin.
 
-Twelve species belong to the monophyletic group of Vulpes genus of **"true foxes"**. Approximately another 25 current or extinct species are always or sometimes called foxes; these foxes are either part of the paraphyletic group of the South American foxes, or of the outlying group, which consists of bat-eared fox, gray fox, and island fox. Foxes are found on every continent except Antarctica. By far the most common and widespread species of fox is the red fox *(Vulpes vulpes)* with about 47 recognized subspecies.
+Anak-anak sampai umur 10 tahun - 2,50 Euro
 
-> The fox changes his fur but not his habits.
+Mahasiswa & pelajar - 3 Euro
 
-The global distribution of foxes, together with their widespread reputation for cunning, has contributed to their prominence in popular culture and folklore in many societies around the world. The hunting of foxes with packs of hounds, long an established pursuit in Europe, especially in the British Isles, was exported by European settlers to various parts of the New World. {
+Dewasa - 3,50 Euro
 
-The interaction between Japanese and European art has been significant: for example ukiyo-e prints, which began to be exported in the 19th century in the movement known as Japonism, had a significant influence on the development of modern art in the West, most notably on post-Impressionism. Famous ukiyo-e artists include Hokusai and Hiroshige. The fusion of traditional woodblock printing and Western art led to the creation of manga, a comic book format that is now popular within and outside Japan. Manga-influenced animation for television and film is called anime. Japanese-made video game consoles have been popular since the 1980s. {
+Atau kalau kita datang satu grup gitu dari 10 orang bisa dapat 10% diskon. Lumayan juga, tapi karena pandemi grup dari 8 orang harus *anmelden *dulu paling gak sehari sebelum mau berkunjung. 
+
+> Minigolf ini memang cuma buka waktu musim panas aja..ya kali mau main di luar pas *winter*, yang ada masuk angin hehe
+>
+
+Enaknya *summer* di Eropa tuh bisa main sampe malem tapi kaya masih sore. matahri terbenam baru jam 22:00 itupun belum gelap banget, masih agak terang. Abis main kita pada laper semua hahaha. Kita pesan makan di restoran, untung belum tutup dan masih bisa pesan. 
+
+
+
+What a good day!
+
