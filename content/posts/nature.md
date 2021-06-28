@@ -1,5 +1,5 @@
 ---
-title: My Way to Relax in Nature and Stress Less
+title: 8 Things Inside The Aachener Cathedral You Should Know
 subtitle: >-
   The way I spend time out in nature can affect how much my physical and mental
   health will recharge and how I benefit from it.
