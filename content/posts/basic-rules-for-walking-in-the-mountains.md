@@ -44,11 +44,13 @@ layout: post
 ---
 ![](/\_static/app-assets/Brown%20and%20Beige%20London%20Travel%20Collection%20YouTube%20Thumbnail.png)
 
-Dengan video ini kami mau ajak kalian teman-teman online jalan-jalan virtual nih. 
+Dengan video ini kami mau ajak kalian teman-teman online jalan-jalan virtual nih. Sekalian kita mau ngenalin konten terbaru kita, yang kita harapkan bisa menghibur kalian. Dengan begitu kita berdua bisa semangat menjelajah hehe tempat-tempat menarik lainnya di kota kita. Atau mungkin kalau keadaan sudah mengijinkan ke kota dan negara lain di sekitar Eropa.
 
-MIT UNS DURCH artinya "𝒃𝒆𝒓𝒔𝒂𝒎𝒂 𝒌𝒂𝒎𝒊 𝒌𝒆" kali ini kita mulai-harus dan wajib ya hehehe di kota dimana kita berdua tinggal saat ini, Aachen. Tujuan pertama kita adalah jeng jeng jeng ✨𝓐𝓪𝓬𝓱𝓮𝓷𝓮𝓻 𝓓𝓸𝓶 ⛪✨. Katedral Aachen ini udah tua banget guys, tebak berapa umurnya? Dia dibangun dengan perintah emperor pada waktu itu di tahun circa 796 AD. Kita semua aja belum lahir guys. Jangan lupa tonton sampai habis ya. Karena bertepatan dengan hari ulang tahun Monica yang akan datang, kita berdua mau berterima kasih atas dukungan kalian dengan ngasih sedikit hadiah kecil buat kalian. [#Giveaway](https://www.youtube.com/hashtag/giveaway) pertama kita nih 😆 jadi pastiin kalian tonton sampai habis biar bisa jawab pertanyaan kita ya. 
+Kita beri nama MIT UNS DURCH yang artinya "𝒃𝒆𝒓𝒔𝒂𝒎𝒂 𝒌𝒂𝒎𝒊 𝒌𝒆..." karena kita berdua ingin kalian bisa melihat dan merasakan juga apa yang kita lihat dan rasakan. Walau hanya melihat melalui layar dan mendengar melalui audio gadget kalian. Think it as a window or a door through another time or even world kaya *Alice in Wonderland* gitulah. We hope that our lacking skill setidaknya masih mumpuni ya untuk merealisasikan niat kami berdua.
 
+Dan kali ini kita mulai, ini memang harus dan wajib sih ya hehehe di kota dimana kita berdua tinggal saat ini, Aachen. Tujuan pertama kita adalah jeng jeng jeng ✨𝓐𝓪𝓬𝓱𝓮𝓷𝓮𝓻 𝓓𝓸𝓶 ⛪✨. 
 
+Katedral Aachen ini udah tua banget guys, tebak berapa umurnya? Dia dibangun dengan perintah emperor pada waktu itu di tahun circa 796 AD. Kita semua aja belum lahir guys. Jangan lupa tonton sampai habis ya. Karena bertepatan dengan hari ulang tahun Monica yang akan datang, kita berdua mau berterima kasih atas dukungan kalian dengan ngasih sedikit hadiah kecil buat kalian. [#Giveaway](https://www.youtube.com/hashtag/giveaway) pertama kita nih 😆 jadi pastiin kalian tonton sampai habis biar bisa jawab pertanyaan kita ya.
 
 (っ◔◡◔)っ ♥ PERATURAN GIVE AWAY ♥
 
@@ -72,12 +74,6 @@ Link countdown ~ [https://bit.ly/3djxSEw](https://www.youtube.com/redirect?event
 
 8.) Pemenang akan kami umumkan tanggal 10 Juli jam [09:00](https://www.youtube.com/watch?v=S_EFXv8bPwc\&t=540s) CEST (waktu Jerman) di Indonesia artinya jam 15:00 WIB melalui Instagram Story @littelarkspur ya.
 
-9.) Pememang kami akan hubungi untuk proses pengiriman hadiah. Semua biaya pengiriman kami yang akan tanggung. 
+9.) Pememang kami akan hubungi untuk proses pengiriman hadiah. Semua biaya pengiriman kami yang akan tanggung.
 
 💖 Kalau belum beruntung jangan sedih ya. Kalau kalian suka dan antusias sama video dan hadiah kecil kami kali ini, pasti kami akan pertimbangkan untuk give away lain di waktu mendatang ya 💖
-
-
-
-
-
-
