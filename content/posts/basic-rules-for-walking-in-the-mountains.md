@@ -2,7 +2,6 @@
 title: "\U0001D54B\U0001D54Cℝ \n\U0001D54D\U0001D540ℝ\U0001D54B\U0001D54C\U0001D538\U0001D543 \U0001D542\U0001D53C \U0001D54A\U0001D538\U0001D543\U0001D538ℍ \U0001D54A\U0001D538\U0001D54B\U0001D54C \U0001D54Cℕ\U0001D53C\U0001D54Aℂ\U0001D546'\U0001D54A \U0001D54E\U0001D546ℝ\U0001D543\U0001D53B \nℍ\U0001D53Cℝ\U0001D540\U0001D54B\U0001D538\U0001D53E\U0001D53C \U0001D54A\U0001D540\U0001D54B\U0001D53C \U0001F3F0 | MIT UNS DURCH AACHEN | EPISODE #1 \U0001F46B| #1 GIVEAWAY"
 excerpt: "Kita beri nama MIT UNS DURCH yang artinya \"\U0001D483\U0001D486\U0001D493\U0001D494\U0001D482\U0001D48E\U0001D482 \U0001D48C\U0001D482\U0001D48E\U0001D48A \U0001D48C\U0001D486...\" karena kita berdua ingin kalian bisa melihat dan merasakan juga apa yang kita lihat dan rasakan. Walau hanya melihat melalui layar dan mendengar melalui audio gadget kalian. Think it as a window or a door through another time or even world kaya Alice in Wonderland gitulah. We hope that our photography & videography lacking skills setidaknya masih mumpuni ya untuk merealisasikan niat kami berdua ini."
 date: '2021-06-28'
-thumb_img_path: images/scientific-goat.JPG
 thumb_img_alt: A man standing on a rock cliff overlooking a river
 content_img_path: 'images/IMG_1290[1].JPG'
 seo:
