@@ -37,6 +37,7 @@ seo:
       value: images/1.jpg
       relativeUrl: true
 layout: post
+thumb_img_path: images/Brown and Beige London Travel Collection YouTube Thumbnail.png
 ---
 ![](/\_static/app-assets/Brown%20and%20Beige%20London%20Travel%20Collection%20YouTube%20Thumbnail.png)
 
