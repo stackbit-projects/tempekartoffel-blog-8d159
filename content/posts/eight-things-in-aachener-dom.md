@@ -77,7 +77,7 @@ Lampu gantung emas Barbarossa merupakan sebuah objek hasil donasi yang diberikan
 
 ## &#xA;&#xA;4.) Shrines of Charlemagne
 
-![](https://i.lensdump.com/i/ZQYywA.jpg)
+![](https://i2.lensdump.com/i/ZQop23.jpg)
 
 Kalian bisa lihat sarkofagus Charlemagne dari dekat hanya dengan guided tour ya guys. Di dalam shrines ini terdapat relics yang merupakan sisa bagian tubuh kaisar. Guide kami cerita bahwa shrines ini dubuat sebagai alat propaganda politik, karena pada masanya ia tidak akur dengan gereja di Roma, Italia. Ia menganggap dirinya sebagai utusan Tuhan. Kita bisa lihat langsung di bagian depan sarkofagus ini terdapat tiga figur. Sebelah kiri adalah Paus berdiri, di tengah adalah dirinya sendiri duduk di atas takhta-di tangan kanannya ada miniatur gereja, dan di sebelah kanan adalah uskup juga berdiri. Di bagian atas ada figur Tuhan Yesus yang secara langsung memberkatinya. Dan sarkofagus ini dikelilingi oleh figur bukan 12 santo. Sampai sini apa kalian paham pesan apa yang ingin ia sampaikan? Figur sang kaisar lebih besar meskipun ia duduk, dibandingkan 2 figur disebelahnya yang berdiri.
 
