@@ -2,11 +2,14 @@
 title: Our first VLOG!
 subtitle: 'Main minigolf musim panas di Aachen, Jerman,'
 excerpt: >-
-  Apparently, Japan is covered in magical and irresistibly cute animal
-  sanctuaries. The Shrines of Ise have been celebrated as the prototype of
-  Japanese architecture. Largely of wood, traditional housing and many temple
-  buildings see the use of tatami mats and sliding doors that break down the
-  distinction between rooms and indoor and outdoor space.
+  Beberapa minggu yang lalu kita berdua buat janji untuk ketemuan dengan teman
+  kita. Akhirnya baru terlaksana hari ini. Mereka suggest main minigolf di
+  pinngiran kota Aachen. Stefan udah sering main minigolf, tapi aku belum pernah
+  sama sekali. Jadi hari ini adalah pertama kalinya aku main. Jarak tempat ini
+  dari rumah kita adalah 5,3 km sekitar 30 menit naik sepeda. Tapi kita makan
+  hampir satu jam buat sampai kesini. The summer heat and the hills was-
+  Man..man...man.. jadi ya gitu mau main aja disuruh pemanasan dulu. Mana sepeda
+  saya ada keranjangnya gede banget.
 date: '2020-01-21'
 thumb_img_path: images/IMG-0823.JPG
 thumb_img_alt: A red fox sitting on a meadow
