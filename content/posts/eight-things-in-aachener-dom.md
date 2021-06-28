@@ -57,13 +57,15 @@ So kalian udah tahu kan ya, *Aachener Dom* atau *Aix-la-Chapelle* dalam bahasa p
 
 Oleh karena itu kami udah rangkum 8 hal penting yang harus kalian tahu ada di dalam katedral Aachen.
 
-## 1.) The Octagon 
+## 1.) The Octagon
 
-
+![](https://i2.lensdump.com/i/ZQoBfb.jpg)
 
 Bagian Oktagon ini adalah titik terpenting dalam katederal Aachen karena merupakan bagian asli dari kapel *Charlemagne*- Palatine Chapel.
 
 ## 2.) Pala d'Oro
+
+
 
 Terletak di bagian bawah Oktagon. Dalam bahasa italia Pala d'Oro “golden altarpiece” atau “gold altar'' yaitu altar emas utama. Objek ini merupakan donasi dari kekaisaran Ottonian, dibuat oleh pandai besi pada jamannya.
 
