@@ -91,6 +91,7 @@ Kursi takhta ini terletak di lantai satu katedral berlawanan arah dengan bagian 
 
 ## 7.) The Chancel
 
+
 Kapel berbentuk *Dome* gaya *Gothic* di bangun mengelilingi  gereja Carolingian ini. Yang paling besar tentunya adalah \*the chancel \* dinamakan juga *“Aachen’s glass house”* karena jendelanya memikiki ketinggian sekitar 27 meters lebih dari 1000 meter persegi permukaan kaca. Setelah perang dunia II, katedral Aachen juga terkena dampaknya. Semua kacanya pecah dan selama 5 tahun lamanya terguyur hujan tanpa atap menyebabkan lukisan di dinding memudar.
 
 ## 8.) Gothic & Carolingian Walls
