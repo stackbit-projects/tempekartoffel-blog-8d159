@@ -1,5 +1,5 @@
 ---
-title: Tur Virtual Ke Sala
+title: Eight Things Inside The Aachener Dom
 subtitle: >-
   Beberapa barang penting yang ada di dalam katedral Aachen yang harus kalian
   ketahui
@@ -11,7 +11,7 @@ thumb_img_path: images/Brown and Beige London Travel Collection YouTube Thumbnai
 thumb_img_alt: A man fishing in a lake
 hide_header: true
 seo:
-  title: Tur Virtual Ke Sala
+  title: Eight Things Inside The Aachener Dom
   description: >-
     Beberapa barang penting yang ada di dalam katedral Aachen yang harus kalian
     ketahui
@@ -20,7 +20,7 @@ seo:
       value: article
       keyName: property
     - name: 'og:title'
-      value: Tur Virtual Ke Sala
+      value: Eight Things Inside The Aachener Dom
       keyName: property
     - name: 'og:description'
       value: >-
@@ -34,7 +34,7 @@ seo:
     - name: 'twitter:card'
       value: summary_large_image
     - name: 'twitter:title'
-      value: Tur Virtual Ke Sala
+      value: Eight Things Inside The Aachener Dom
     - name: 'twitter:description'
       value: >-
         Beberapa barang penting yang ada di dalam katedral Aachen yang harus kalian
