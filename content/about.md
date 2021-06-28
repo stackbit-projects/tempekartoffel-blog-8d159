@@ -38,7 +38,7 @@ Hoffentlich sind unsere Video hilfreich!
 Danke für eueren Support :)
 
 > Durch unserem Channel möchten wir interresante Momente aus unserem leben als Multikultipaar mit euch teilen
-
+>
 > *Stefan & Monica*
 
 As a hobby, John Doe authors the most influential design blog in Sweden with over 100,000 page views a month. He lives in Stockholm with his beautiful wife and two boys.
