@@ -37,7 +37,7 @@ Wir sind ein Paar mit verschiedenen Nationalitäten und Kulturen. Stefan (Deutsc
 Hoffentlich sind unsere Video hilfreich!
 Danke für eueren Support :)
 
-Durch unserem Channel möchten wir interresante Momente aus unserem leben als Multikultipaar mit euch teilen
+> Durch unserem Channel möchten wir interresante Momente aus unserem leben als Multikultipaar mit euch teilen
 
 > *Stefan & Monica*
 
