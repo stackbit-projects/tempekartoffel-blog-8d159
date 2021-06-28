@@ -53,6 +53,8 @@ seo:
 layout: post
 content_img_path: images/thoughtful-spinach.JPG
 ---
+![](https://i3.lensdump.com/i/ZQoihH.md.jpg)
+
 So kalian udah tahu kan ya, *Aachener Dom* atau *Aix-la-Chapelle* dalam bahasa perancis, dan atau *Aken* dalam bahasa belanda dibangun circa 796 AD. *Charles I* atau *Charles The Great* dan atau lebih dikenal dengan sebutan *Charlemagne* adalah yang memberi perintah untuk membangun katedral ini. \*He was the king of the Franks, Emperor in western Europe. Aachen was his favorite royal residence. Charlemagne \*pada waktu itu ingin bangun gereja St. Mary mirp seperti kota Yerusalem, yang merupakan simbol adanya kontak antara bumi dan surga. Pembangunannya butuh banyak usaha, dana, dan waktu yang lama.
 
 Oleh karena itu kami udah rangkum 8 hal penting yang harus kalian tahu ada di dalam katedral Aachen.
