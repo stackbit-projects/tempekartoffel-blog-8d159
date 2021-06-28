@@ -44,11 +44,35 @@ seo:
       relativeUrl: true
 layout: post
 ---
-So kalian udah tahu kan ya, *Aachener Dom* atau *Aix-la-Chapelle* dalam bahasa perancis, dan atau *Aken* dalam bahasa belanda dibangun circa 796 AD. *Charles I* atau *Charles The Great* dan atau lebih dikenal dengan sebutan *Charlemagne* adalah yang memberi perintah untuk membangun katedral ini. *He was the king of the Franks, Emperor in western Europe. Aachen was his favorite royal residence. Charlemagne *pada waktu itu ingin bangun gereja St. Mary mirp seperti kota Yerusalem, yang merupakan simbol adanya kontak antara bumi dan surga. Pembangunannya butuh banyak usaha, dana, dan waktu yang lama. 
+So kalian udah tahu kan ya, *Aachener Dom* atau *Aix-la-Chapelle* dalam bahasa perancis, dan atau *Aken* dalam bahasa belanda dibangun circa 796 AD. *Charles I* atau *Charles The Great* dan atau lebih dikenal dengan sebutan *Charlemagne* adalah yang memberi perintah untuk membangun katedral ini. \*He was the king of the Franks, Emperor in western Europe. Aachen was his favorite royal residence. Charlemagne \*pada waktu itu ingin bangun gereja St. Mary mirp seperti kota Yerusalem, yang merupakan simbol adanya kontak antara bumi dan surga. Pembangunannya butuh banyak usaha, dana, dan waktu yang lama.
 
 Oleh karena itu kami udah rangkum 8 hal penting yang harus kalian tahu ada di dalam katedral Aachen.
 
-1.)  
-Carolingian columns
+## 1.) The Octagon &#xA;
 
-Carolingian columns - Pilar Carolingian
+
+Bagian Oktagon ini adalah titik terpenting dalam katederal Aachen karena merupakan bagian asli dari kapel *Charlemagne*- Palatine Chapel.
+
+
+
+## 2.) Pala d'Oro
+
+Terletak di bagian bawah Oktagon. Dalam bahasa italia Pala d'Oro “golden altarpiece” atau “gold altar'' yaitu altar emas utama. Objek ini merupakan donasi dari kekaisaran Ottonian, dibuat oleh pandai besi pada jamannya.
+
+
+
+## 3.) Barbarossa Chandelier&#xA;
+
+## Lampu gantung emas Barbarossa merupakan sebuah objek hasil donasi yang diberikan oleh Frederick I untuk merayakan kanonisasi Charlemagne.  Lampu gantung ini dibuat di Aachen pada tahun 1165-1184.&#xA;&#xA;&#xA;4.) Shrines of Charlemagne 
+
+Kalian bisa lihat sarkofagus Charlemagne dari dekat hanya dengan guided tour ya guys. Di dalam shrines ini terdapat relics yang merupakan sisa bagian tubuh kaisar. Charlemagne Charlemagne di kanoni for political reasons; however, the church today does not recognize his sainthood.
+
+
+
+## 5.) Shrines of the Virgin Mary
+
+## 6.) The Coronation Throne
+
+## 7.) The Chancel
+
+## 8.) Carolingian columns &#xA;&#xA;&#xA;&#xA;&#xA;&#xA;
