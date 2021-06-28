@@ -7,7 +7,7 @@ excerpt: >-
   Beberapa barang penting yang ada di dalam katedral Aachen yang harus kalian
   ketahui
 date: '2021-06-28'
-thumb_img_path: images/Brown and Beige London Travel Collection YouTube Thumbnail.png
+thumb_img_path: 'images/IMG_1488[1].JPG'
 thumb_img_alt: A man fishing in a lake
 hide_header: true
 seo:
@@ -24,8 +24,8 @@ seo:
       keyName: property
     - name: 'og:description'
       value: >-
-        Beberapa barang penting yang ada di dalam katedral Aachen yang harus kalian
-        ketahui
+        Beberapa barang penting yang ada di dalam katedral Aachen yang harus
+        kalian ketahui
       keyName: property
     - name: 'og:image'
       value: images/4.jpg
@@ -37,8 +37,8 @@ seo:
       value: Eight Things Inside The Aachener Dom
     - name: 'twitter:description'
       value: >-
-        Beberapa barang penting yang ada di dalam katedral Aachen yang harus kalian
-        ketahui
+        Beberapa barang penting yang ada di dalam katedral Aachen yang harus
+        kalian ketahui
     - name: 'twitter:image'
       value: images/4.jpg
       relativeUrl: true
