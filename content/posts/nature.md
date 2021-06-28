@@ -1,8 +1,8 @@
 ---
 title: 8 Things Inside The Aachener Cathedral You Should Know
 subtitle: >-
-  The way I spend time out in nature can affect how much my physical and mental
-  health will recharge and how I benefit from it.
+  Beberapa barang penting yang ada di dalam katedral Aachen yang harus kalian
+  ketahui
 excerpt: >-
   The way I spend time out in nature can affect how much my physical and mental
   health will recharge and how I benefit from it.
