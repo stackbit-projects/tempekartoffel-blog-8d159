@@ -1,5 +1,5 @@
 ---
-title: 8 Things Inside The Aachener Cathedral You Should Know
+title: 'Tur Virtual '
 subtitle: >-
   Beberapa barang penting yang ada di dalam katedral Aachen yang harus kalian
   ketahui
