@@ -42,28 +42,42 @@ seo:
       relativeUrl: true
 layout: post
 ---
-![](/\_static/app-assets/successful-spinach.JPG)
+![](/\_static/app-assets/Brown%20and%20Beige%20London%20Travel%20Collection%20YouTube%20Thumbnail.png)
 
-In the United States, Canada, the Republic of Ireland, and United Kingdom, **hiking** refers to walking outdoors on a trail, or off trail, for recreational purposes. A day hike refers to a hike that can be completed in a single day. However, in the United Kingdom, the word walking is also used, as well as rambling, while walking in mountainous areas is called hillwalking. In Northern England, Including the Lake District and Yorkshire Dales, fellwalking describes hill or mountain walks, as fell is the common word for both features there.
+Dengan video ini kami mau ajak kalian teman-teman online jalan-jalan virtual nih. 
 
-Hiking can sometimes involves bushwhacking and hiking is sometimes referred to as such. This specifically refers to difficult walking through dense forest, undergrowth, or bushes, where forward progress requires pushing vegetation aside. In extreme cases of bushwhacking, where the vegetation is so dense that human passage is impeded, a machete is used to clear a pathway. The Australian term bushwalking refers to both on and off-trail hiking. Common terms for hiking used by [New Zealanders](https://en.wikipedia.org/wiki/New_Zealand) are tramping (particularly for overnight and longer trips), walking or bushwalking. Trekking is the preferred word used to describe multi-day hiking in the mountainous regions of India, Pakistan, Nepal, North America, South America, Iran and in the highlands of East Africa. Hiking a long-distance trail from end-to-end is also referred to as trekking and as thru-hiking in some places. In North America, multi-day hikes, usually with camping, are referred to as [backpacking](https://en.wikipedia.org/wiki/Backpacking_\(wilderness\)).
+MIT UNS DURCH artinya "𝒃𝒆𝒓𝒔𝒂𝒎𝒂 𝒌𝒂𝒎𝒊 𝒌𝒆" kali ini kita mulai-harus dan wajib ya hehehe di kota dimana kita berdua tinggal saat ini, Aachen. Tujuan pertama kita adalah jeng jeng jeng ✨𝓐𝓪𝓬𝓱𝓮𝓷𝓮𝓻 𝓓𝓸𝓶 ⛪✨. Katedral Aachen ini udah tua banget guys, tebak berapa umurnya? Dia dibangun dengan perintah emperor pada waktu itu di tahun circa 796 AD. Kita semua aja belum lahir guys. Jangan lupa tonton sampai habis ya. Karena bertepatan dengan hari ulang tahun Monica yang akan datang, kita berdua mau berterima kasih atas dukungan kalian dengan ngasih sedikit hadiah kecil buat kalian. [#Giveaway](https://www.youtube.com/hashtag/giveaway) pertama kita nih 😆 jadi pastiin kalian tonton sampai habis biar bisa jawab pertanyaan kita ya. 
 
-## Long Distance Hiking
 
-Frequently nowadays long distance hikes (walking tours) are undertaken along long distance paths, including the National Trails in England and Wales, the National Trail System in the USA and The Grande Randonnée (France), Grote Routepaden, or Lange-afstand-wandelpaden (Holland), Grande Rota (Portugal), Gran Recorrido (Spain) is a network of long-distance footpaths in Europe, mostly in France, Belgium, the Netherlands and Spain. There are extensive networks in other European countries of long distance trails, as well as in Canada, Australia, New Zealand, Nepal, and to a lesser extent other Asiatic countries, like Turkey, Israel, and Jordan. In the Alps of Austria, Slovenia, Switzerland, Germany, France, and Italy walking tours are often made from 'hut-to-hut', using an extensive system of mountain huts.
 
-In the late 20th-century there has been a proliferation of official and unofficial long distance routes, which mean that hikers now are more likely to refer to using a long distance way (Britain), trail (USA), The Grande Randonnée (France), etc., than setting out on a walking tour. Early examples of long distance paths, include the Appalachian Trail in the USA and the Pennine Way in Britain. Pilgrimage routes are now treated, by some walkers, as long distance routes, and the route taken by the British National Trail the North Downs Way closely follows that of the Pilgrims' Way to Canterbury. Hiking times can be estimated by Naismith's rule or Tobler's hiking function.
+(っ◔◡◔)っ ♥ PERATURAN GIVE AWAY ♥
 
-## Equipment
+1.)  Subscribe Youtube channel kita
+[#𝙩𝙚𝙢𝙥𝙚𝙖𝙣𝙙𝙠𝙖𝙧𝙩𝙤𝙛𝙛𝙚𝙡](https://www.youtube.com/hashtag/tempeandkartoffel) ~ [https://bit.ly/35UkGlk](https://www.youtube.com/redirect?event=video_description\&redir_token=QUFFLUhqbnZIZ0psZjRjRFFscmVWd21CZFBFakVFcjBYZ3xBQ3Jtc0trYzU5R1UtX2pJZUxmalNQM3JUN1Rtc3JOeXdOb1RJQTRmN0hPQy1kM2ZMc3VjSTRscXJmRmU2cW11TTJTMDVXbzFuMGljQ1NPZW5MUVU1VF9ZWXZscmxHZUU0dlExZjFnTDJKd1ljakpuaXlyaXEzSQ\&q=https%3A%2F%2Fbit.ly%2F35UkGlk)
 
-The equipment required for hiking depends on the length of the hike, but day hikers generally carry at least water, food, a map, and rain-proof gear. Hikers usually wear sturdy hiking boots for mountain walking and backpacking, as protection from the rough terrain, as well as providing increased stability. The Mountaineers club recommends a list of "Ten Essentials" equipment for hiking, including a compass, sunglasses, sunscreen, a flashlight, a first aid kit, a fire starter, and a knife. Other groups recommend items such as hat, gloves, insect repellent, and an emergency blanket. A GPS navigation device can also be helpful and route cards may be used as a guide.
+2.) Follow akun Instagram kita berdua
+@stefan.lucid ~ [https://bit.ly/3dciGsX](https://www.youtube.com/redirect?event=video_description\&redir_token=QUFFLUhqbEs5RGtRNG9sd3pmMlZKZXFGVjZpM2FKZ01OZ3xBQ3Jtc0tub3pwZjYtM2hEeFJ0N3VtNU1TQW9peTNMY3cyLTNMVlBjSTIybkJWWllqZXNUb0lwaFBXa1FLR3B6MHQxT2Z0VmliWTRYaHJjWjlDWWJlR3NLT2dVQ2UtdkVOMzh6ODh4VTFiclU4ajhzc1Zid3Fjdw\&q=https%3A%2F%2Fbit.ly%2F3dciGsX)
+@littelarkspur ~ [https://bit.ly/3wVAG2B](https://www.youtube.com/redirect?event=video_description\&redir_token=QUFFLUhqazQtUm9mdmhsbWpWbXVicDJlSVpRM0lFamJOd3xBQ3Jtc0tua3RrcDItOHdldExxUEtYRzZKNDBMNUdMcVhLaUw4eVpWUmdUX2NjSFVFNkp2VnRMNUIweW9fM21KQl9yVlowczU5Z1F1Mk9zOHpKTHgzanVOZURzUlg5R3ZEVHhQYWRkYnk5b29MUGFQTENlNWQ0aw\&q=https%3A%2F%2Fbit.ly%2F3wVAG2B)
 
-> Returning home is the most difficult part of long-distance hiking; You have grown outside the puzzle and your piece no longer fits. ― Cindy Ross
+3.) Jawab pertanyaan kita di kolom komentar video ini aja ya guys.
 
-Proponents of ultralight backpacking argue that long lists of required items for multi-day hikes increases pack weight, and hence fatigue and the chance of injury. Instead, they recommend reducing pack weight, in order to make hiking long distances easier. Even the use of hiking boots on long-distances hikes is controversial among ultralight hikers, because of their weight.
+4.) Tulis jawaban kalian beserta nama Instagram kalian ya.
 
-## Environmental Impact
+5.) Akan ada tiga (3) orang pemenang
 
-Natural environments are often fragile, and may be accidentally damaged, especially when a large number of hikers are involved. For example, years of gathering wood can strip an alpine area of valuable nutrients. and some species, such as martens or bighorn sheep, are very sensitive to the presence of humans, especially around mating season. Generally, protected areas such as parks have regulations in place to protect the environment, so as to minimize such impact. Such regulations include banning wood fires, restricting camping to established camp sites, disposing or packing out faecal matter, and imposing a quota on the number of hikers. Many hikers espouse the philosophy of Leave No Trace, following strict practices on dealing with food waste, food packaging, and other impact on the environment.
+6.) Kita akan undi pemenangnya pakai random picker. Kita akan lihat apakah pemenang mengikuti perarturan ini atau belum. Jika belum, maka akan hangus dan kita pick lagi.
 
-Human waste is often a major source of environmental impact from hiking, and can contaminate the watershed and make other hikers ill. 'Catholes' dug 10 to 25 cm (4 to 10 inches) deep, depending on local soil composition and covered after use, at least 60 m (200 feet) away from water sources and trails, are recommended to reduce the risk of bacterial contamination. [Source](https://en.wikipedia.org/wiki/Hiking)
+7.) Give away kali ini berlaku sejak kami published video ini sampai tanggal 9 Juli 2021 jam 24:00 WIB. Bisa cek countdown di sini juga ya.
+Link countdown ~ [https://bit.ly/3djxSEw](https://www.youtube.com/redirect?event=video_description\&redir_token=QUFFLUhqbDRFZ1BwRFdXNTZZeURGTng5QUUxRkc0ald0Z3xBQ3Jtc0trOUhZQS1MVGhuSVBkNWhPR3UwdWt3R0YtS2QxZDVzZ0p0d1RsYVI1ejIxQVlrZXRWRGZJMlJFa1hVdEdlUC1nZlpuR1dwUTc1a0p1ZFJFV3RuRVZkdndkX210N18wczd4ZElid3BKSUtiNDl4Vm1Cdw\&q=https%3A%2F%2Fbit.ly%2F3djxSEw)
+
+8.) Pemenang akan kami umumkan tanggal 10 Juli jam [09:00](https://www.youtube.com/watch?v=S_EFXv8bPwc\&t=540s) CEST (waktu Jerman) di Indonesia artinya jam 15:00 WIB melalui Instagram Story @littelarkspur ya.
+
+9.) Pememang kami akan hubungi untuk proses pengiriman hadiah. Semua biaya pengiriman kami yang akan tanggung. 
+
+💖 Kalau belum beruntung jangan sedih ya. Kalau kalian suka dan antusias sama video dan hadiah kecil kami kali ini, pasti kami akan pertimbangkan untuk give away lain di waktu mendatang ya 💖
+
+
+
+
+
+
