@@ -44,9 +44,11 @@ seo:
       relativeUrl: true
 layout: post
 ---
+So kalian udah tahu kan ya, *Aachener Dom* atau *Aix-la-Chapelle* dalam bahasa perancis, dan atau *Aken* dalam bahasa belanda dibangun circa 796 AD. *Charles I* atau *Charles The Great* dan atau lebih dikenal dengan sebutan *Charlemagne* adalah yang memberi perintah untuk membangun katedral ini. *He was the king of the Franks, Emperor in western Europe. Aachen was his favorite royal residence. Charlemagne *pada waktu itu ingin bangun gereja St. Mary mirp seperti kota Yerusalem, yang merupakan simbol adanya kontak antara bumi dan surga. Pembangunannya butuh banyak usaha, dana, dan waktu yang lama. 
 
-Vis accumsan feugiat adipiscing nisl amet adipiscing accumsan blandit accumsan sapien blandit ac amet faucibus aliquet placerat commodo. Interdum ante aliquet commodo accumsan vis phasellus adipiscing. Ornare a in lacinia. Vestibulum accumsan ac metus massa tempor. Accumsan in lacinia ornare massa amet. Ac interdum ac non praesent. Cubilia lacinia interdum massa faucibus blandit nullam. Accumsan phasellus nunc integer. Accumsan euismod nunc adipiscing lacinia erat ut sit. Arcu amet. Id massa aliquet arcu accumsan lorem amet accumsan.
+Oleh karena itu kami udah rangkum 8 hal penting yang harus kalian tahu ada di dalam katedral Aachen.
 
-Amet nibh adipiscing adipiscing. Commodo ante vis placerat interdum massa massa primis. Tempus condimentum tempus non ac varius cubilia adipiscing placerat lorem turpis at. Aliquet lorem porttitor interdum. Amet lacus. Aliquam lobortis faucibus blandit ac phasellus. In amet magna non interdum volutpat porttitor metus a ante ac neque. Nisi turpis. Commodo col. Interdum adipiscing mollis ut aliquam id ante adipiscing commodo integer arcu amet Ac interdum ac non praesent. Cubilia lacinia interdum massa faucibus blandit nullam. Accumsan phasellus nunc integer. Accumsan euismod nunc adipiscing lacinia erat ut sit. Arcu amet. Id massa aliquet arcu accumsan lorem amet accumsan commodo odio cubilia ac eu interdum placerat placerat arcu commodo lobortis adipiscing semper ornare pellentesque.
+1.)  
+Carolingian columns
 
-Amet nibh adipiscing adipiscing. Commodo ante vis placerat interdum massa massa primis. Tempus condimentum tempus non ac varius cubilia adipiscing placerat lorem turpis at. Aliquet lorem porttitor interdum. Amet lacus. Aliquam lobortis faucibus blandit ac phasellus. In amet magna non interdum volutpat porttitor metus a ante ac neque. Nisi turpis. Commodo col. Interdum adipiscing mollis ut aliquam id ante adipiscing commodo integer arcu amet blandit adipiscing arcu ante.
+Carolingian columns - Pilar Carolingian
