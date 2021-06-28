@@ -70,12 +70,17 @@ Berbeda dengan sarkofagus perawan Maria. Di dalamnya ada kain lampin dan kain ik
 
 ## 6.) The Coronation Throne
 
-Kursi takhta ini terletak di lantai satu katedral berlawanan arah dengan bagian organ dan koor. Jangan bingung ya, di Eropa (khusunya di Jerman) lantai dasar disebut *erdgeschoss* *baru lantai setelahnya disebut* *erste etage* atau lantai satu. Sama seperti dua objek di atas sebelumnya, kalian bisa lihat objek ini hanya dengan tur guide. Kursi takhta ini sangatlah berharga namun bukan karena ia terbuat dari emas, melainkan karena telah digunakan sebagai tempat koronasi 31 raja dan 12 ratu. Kursi ini terbuat dari batu marble dan sudah ada sejak awal katedral dibangun, dan belum pernah dipindahkan sama sekali. 
+Kursi takhta ini terletak di lantai satu katedral berlawanan arah dengan bagian organ dan koor. Jangan bingung ya, di Eropa (khusunya di Jerman) lantai dasar disebut *erdgeschoss* *baru lantai setelahnya disebut* *erste etage* atau lantai satu. Sama seperti dua objek di atas sebelumnya, kalian bisa lihat objek ini hanya dengan tur guide. Kursi takhta ini sangatlah berharga namun bukan karena ia terbuat dari emas, melainkan karena telah digunakan sebagai tempat koronasi 31 raja dan 12 ratu. Kursi ini terbuat dari batu marble dan sudah ada sejak awal katedral dibangun, dan belum pernah dipindahkan sama sekali.
 
 ## 7.) The Chancel
 
-Kapel berbentuk *Dome* gaya *Gothic* di bangun mengelilingi  gereja Carolingian ini. Yang paling besar tentunya adalah *the chancel * dinamakan juga *“Aachen’s glass house”* karena jendelanya memikiki ketinggian sekitar 27 meters lebih dari 1000 meter persegi permukaan kaca. Setelah perang dunia II, katedral Aachen juga terkena dampaknya. Semua kacanya pecah dan selama 5 tahun lamanya terguyur hujan tanpa atap menyebabkan lukisan di dinding memudar. 
+Kapel berbentuk *Dome* gaya *Gothic* di bangun mengelilingi  gereja Carolingian ini. Yang paling besar tentunya adalah \*the chancel \* dinamakan juga *“Aachen’s glass house”* karena jendelanya memikiki ketinggian sekitar 27 meters lebih dari 1000 meter persegi permukaan kaca. Setelah perang dunia II, katedral Aachen juga terkena dampaknya. Semua kacanya pecah dan selama 5 tahun lamanya terguyur hujan tanpa atap menyebabkan lukisan di dinding memudar.
+
+## 8.) Gothic & Carolingian Walls
+
+Masih di lantai satu dekat organ dan bagian koor, kalian masih bisa lihat dinding gaya Gothic dan Carolingian katedral Aachen. 
 
 
 
-## 8.) Carolingian columns &#xA;&#xA;&#xA;&#xA;&#xA;&#xA;
+
+
