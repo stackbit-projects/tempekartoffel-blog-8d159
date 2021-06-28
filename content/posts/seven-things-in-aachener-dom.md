@@ -4,28 +4,28 @@ subtitle: >-
   Beberapa barang penting yang ada di dalam katedral Aachen yang harus kalian
   ketahui
 excerpt: >-
-  The way I spend time out in nature can affect how much my physical and mental
-  health will recharge and how I benefit from it.
+  Beberapa barang penting yang ada di dalam katedral Aachen yang harus kalian
+  ketahui
 date: '2021-06-28'
 thumb_img_path: images/Brown and Beige London Travel Collection YouTube Thumbnail.png
 thumb_img_alt: A man fishing in a lake
 hide_header: true
 seo:
-  title: My Way to Relax in Nature and Stress Less
+  title: Tur Virtual Ke Sala
   description: >-
-    The way I spend time out in nature can affect how much my physical and
-    mental health will recharge.
+    Beberapa barang penting yang ada di dalam katedral Aachen yang harus kalian
+    ketahui
   extra:
     - name: 'og:type'
       value: article
       keyName: property
     - name: 'og:title'
-      value: My Way to Relax in Nature and Stress Less
+      value: Tur Virtual Ke Sala
       keyName: property
     - name: 'og:description'
       value: >-
-        The way I spend time out in nature can affect how much my physical and
-        mental health will recharge.
+        Beberapa barang penting yang ada di dalam katedral Aachen yang harus kalian
+        ketahui
       keyName: property
     - name: 'og:image'
       value: images/4.jpg
@@ -34,11 +34,11 @@ seo:
     - name: 'twitter:card'
       value: summary_large_image
     - name: 'twitter:title'
-      value: My Way to Relax in Nature and Stress Less
+      value: Tur Virtual Ke Sala
     - name: 'twitter:description'
       value: >-
-        The way I spend time out in nature can affect how much my physical and
-        mental health will recharge.
+        Beberapa barang penting yang ada di dalam katedral Aachen yang harus kalian
+        ketahui
     - name: 'twitter:image'
       value: images/4.jpg
       relativeUrl: true
