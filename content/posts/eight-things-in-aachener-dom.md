@@ -57,7 +57,7 @@ So kalian udah tahu kan ya, *Aachener Dom* atau *Aix-la-Chapelle* dalam bahasa p
 Oleh karena itu kami udah rangkum 8 hal penting yang harus kalian tahu ada di dalam katedral Aachen.
 
 ## 1.) The Octagon &#xA;
-![](/\_static/app-assets/IMG\_0744%5B1%5D.JPG)
+![](/\_static/app-assets/IMG\Octagon-min.JPG)
 Bagian Oktagon ini adalah titik terpenting dalam katederal Aachen karena merupakan bagian asli dari kapel *Charlemagne*- Palatine Chapel.
 
 ## 2.) Pala d'Oro
