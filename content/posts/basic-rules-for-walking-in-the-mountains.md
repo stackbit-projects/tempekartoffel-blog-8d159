@@ -48,12 +48,11 @@ Dengan video ini kami mau ajak kalian teman-teman online jalan-jalan virtual nih
 
 Kita beri nama MIT UNS DURCH yang artinya "𝒃𝒆𝒓𝒔𝒂𝒎𝒂 𝒌𝒂𝒎𝒊 𝒌𝒆..." karena kita berdua ingin kalian bisa melihat dan merasakan juga apa yang kita lihat dan rasakan. Walau hanya melihat melalui layar dan mendengar melalui audio gadget kalian. Think it as a window or a door through another time or even world kaya *Alice in Wonderland* gitulah. We hope that our lacking skill setidaknya masih mumpuni ya untuk merealisasikan niat kami berdua.
 
-Dan kali ini kita mulai, ini memang harus dan wajib sih ya hehehe di kota dimana kita berdua tinggal saat ini, Aachen. Tujuan pertama kita adalah jeng jeng jeng ✨𝓐𝓪𝓬𝓱𝓮𝓷𝓮𝓻 𝓓𝓸𝓶 ⛪✨.
+Dan kali ini kita mulai, ini memang harus dan wajib sih ya hehehe di kota dimana kita berdua tinggal saat ini, Aachen. Tujuan pertama kita adalah jeng jeng jeng jeng ✨𝓐𝓪𝓬𝓱𝓮𝓷𝓮𝓻 𝓓𝓸𝓶 ⛪✨.
 
-Katedral Aachen ini udah tua banget guys, tebak berapa umurnya? Dia dibangun dengan perintah emperor pada waktu itu di tahun circa 796 AD. Kita semua aja belum lahir guys. Jangan lupa tonton sampai habis ya. 
+Katedral Aachen ini udah tua banget guys, tebak berapa umurnya? Dia dibangun dengan perintah emperor pada waktu itu di tahun circa 796 AD. Kita semua aja belum lahir guys. Jangan lupa tonton sampai habis ya.
 
-> Dia dibangun dengan perintah emperor pada waktu itu di tahun circa 796 AD. 
->
+> Dia dibangun dengan perintah emperor pada waktu itu di tahun circa 796 AD.
 
 Karena bertepatan dengan hari ulang tahun Monica yang akan datang, kita berdua mau berterima kasih atas dukungan kalian dengan ngasih sedikit hadiah kecil buat kalian. [#Giveaway](https://www.youtube.com/hashtag/giveaway) pertama kita nih 😆 jadi pastiin kalian tonton sampai habis biar bisa jawab pertanyaan kita ya.
 
