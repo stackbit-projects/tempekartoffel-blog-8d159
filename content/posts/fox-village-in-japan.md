@@ -10,7 +10,7 @@ excerpt: >-
   hampir satu jam buat sampai kesini. The summer heat and the hills was-
   Man..man...man.. jadi ya gitu mau main aja disuruh pemanasan dulu. Mana sepeda
   saya ada keranjangnya gede banget.
-date: '2020-01-21'
+date: '0002-06-21'
 thumb_img_path: images/IMG-0823.JPG
 thumb_img_alt: A red fox sitting on a meadow
 content_img_path: 'images/IMG_0767[1].JPG'
