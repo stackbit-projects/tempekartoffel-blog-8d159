@@ -46,7 +46,7 @@ layout: post
 
 Dengan video ini kami mau ajak kalian teman-teman online jalan-jalan virtual nih. Sekalian kita mau ngenalin konten terbaru kita, yang kita harapkan bisa menghibur kalian. Dengan begitu kita berdua bisa semangat menjelajah hehe tempat-tempat menarik lainnya di kota kita. Atau mungkin kalau keadaan sudah mengijinkan ke kota dan negara lain di sekitar Eropa.
 
-Kita beri nama MIT UNS DURCH yang artinya "𝒃𝒆𝒓𝒔𝒂𝒎𝒂 𝒌𝒂𝒎𝒊 𝒌𝒆..." karena kita berdua ingin kalian bisa melihat dan merasakan juga apa yang kita lihat dan rasakan. Walau hanya melihat melalui layar dan mendengar melalui audio gadget kalian. Think it as a window or a door through another time or even world kaya *Alice in Wonderland* gitulah. We hope that our lacking skill setidaknya masih mumpuni ya untuk merealisasikan niat kami berdua.
+Kita beri nama MIT UNS DURCH yang artinya "𝒃𝒆𝒓𝒔𝒂𝒎𝒂 𝒌𝒂𝒎𝒊 𝒌𝒆..." karena kita berdua ingin kalian bisa melihat dan merasakan juga apa yang kita lihat dan rasakan. Walau hanya melihat melalui layar dan mendengar melalui audio gadget kalian. Think it as a window or a door through another time or even world kaya *Alice in Wonderland* gitulah. We hope that our photography & videography lacking skills setidaknya masih mumpuni ya untuk merealisasikan niat kami berdua ini.
 
 Dan kali ini kita mulai, ini memang harus dan wajib sih ya hehehe, di kota dimana kita berdua tinggal saat ini, Aachen. Tujuan pertama kita di episode pertama ini adalah jeng jeng jeng jeng ✨𝓐𝓪𝓬𝓱𝓮𝓷𝓮𝓻 𝓓𝓸𝓶 ⛪✨.
 
