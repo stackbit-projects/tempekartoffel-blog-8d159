@@ -1,7 +1,6 @@
 ---
 title: About Us
 subtitle: This is a short page about us two
-img_path: images/about.jpg
 seo:
   title: About Me
   description: A page about me and my work
