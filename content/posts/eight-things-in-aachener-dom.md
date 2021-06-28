@@ -65,7 +65,7 @@ Bagian Oktagon ini adalah titik terpenting dalam katederal Aachen karena merupak
 
 ## 2.) Pala d'Oro
 
-![](https://i2.lensdump.com/i/ZQoBfb.jpg)
+![](https://i1.lensdump.com/i/ZQoAqk.jpg)
 
 Terletak di bagian bawah Oktagon. Dalam bahasa italia Pala d'Oro “golden altarpiece” atau “gold altar'' yaitu altar emas utama. Objek ini merupakan donasi dari kekaisaran Ottonian, dibuat oleh pandai besi pada jamannya.
 
