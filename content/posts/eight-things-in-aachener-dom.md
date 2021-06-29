@@ -17,7 +17,6 @@ excerpt: >-
 date: '2021-06-28'
 thumb_img_path: 'images/IMG_1488[1].JPG'
 thumb_img_alt: A man fishing in a lake
-content_img_path: 'images/IMG_1290[1].JPG'
 hide_header: true
 seo:
   title: Eight Things Inside The Aachener Dom
