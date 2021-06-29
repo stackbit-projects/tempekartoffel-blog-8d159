@@ -89,7 +89,7 @@ Berbeda dengan sarkofagus perawan Maria. Di dalamnya ada kain lampin dan kain ik
 
 ## 6.) The Coronation Throne
 
-https://i1.lensdump.com/i/ZQoHxq.jpg
+![](https://i1.lensdump.com/i/ZQoHxq.jpg)
 
 Kursi takhta ini terletak di lantai satu katedral berlawanan arah dengan bagian organ dan koor. Jangan bingung ya, di Eropa (khusunya di Jerman) lantai dasar disebut *erdgeschoss* *baru lantai setelahnya disebut* *erste etage* atau lantai satu. Sama seperti dua objek di atas sebelumnya, kalian bisa lihat objek ini hanya dengan tur guide. Kursi takhta ini sangatlah berharga namun bukan karena ia terbuat dari emas, melainkan karena telah digunakan sebagai tempat koronasi 31 raja dan 12 ratu. Kursi ini terbuat dari batu marble dan sudah ada sejak awal katedral dibangun, dan belum pernah dipindahkan sama sekali.
 
