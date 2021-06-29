@@ -69,13 +69,13 @@ Bagian Oktagon ini adalah titik terpenting dalam katederal Aachen karena merupak
 
 ![](https://i1.lensdump.com/i/ZQoAqk.jpg)
 
-Terletak di bagian bawah Oktagon. Dalam bahasa italia Pala d'Oro “golden altarpiece” atau “gold altar'' yaitu altar emas utama. Objek ini merupakan donasi dari kekaisaran Ottonian, dibuat oleh pandai besi pada jamannya.
+Terletak di bagian bawah Oktagon. Dalam bahasa italia *Pala d'Oro “golden altarpiece”* atau *“gold altar'' *yaitu altar emas utama. Objek ini merupakan donasi dari kekaisaran *Ottonian*, dibuat oleh pandai besi pada jamannya.
 
 ## 3.) Barbarossa Chandelier&#xA;
 
 ![](https://i.lensdump.com/i/ZQYywA.jpg)
 
-Lampu gantung emas Barbarossa merupakan sebuah objek hasil donasi yang diberikan oleh Frederick I untuk merayakan kanonisasi Charlemagne.  Lampu gantung ini dibuat di Aachen pada tahun 1165-1184.
+Lampu gantung emas Barbarossa merupakan sebuah objek hasil donasi yang diberikan oleh *Frederick I* untuk merayakan kanonisasi *Charlemagne*.  Lampu gantung ini dibuat di Aachen pada tahun 1165-1184.
 
 ## &#xA;&#xA;4.) Shrines of Charlemagne
 
@@ -85,7 +85,7 @@ Kalian bisa lihat sarkofagus Charlemagne dari dekat hanya dengan guided tour ya 
 
 ## 5.) Shrines of the Virgin Mary
 
-Berbeda dengan sarkofagus perawan Maria. Di dalamnya ada kain lampin dan kain ikat pinggang Yesus, gaun perawan Maria dan kain pemenggalan kepala Yohanes Pembaptis. Semua reliks tersebut bisa dilihat peziarah setiap tujuh tahun saat *Heiligtumsfahrt* atau Aachen pilgrimage- hari ziarah Aachen.
+Berbeda dengan sarkofagus perawan Maria. Di dalamnya ada kain lampin dan kain ikat pinggang Yesus, gaun perawan Maria dan kain pemenggalan kepala Yohanes Pembaptis. Semua reliks tersebut bisa dilihat peziarah setiap tujuh tahun saat *Heiligtumsfahrt* atau Aachen *pilgrimage*- hari ziarah Aachen.
 
 ## 6.) The Coronation Throne
 
@@ -97,7 +97,7 @@ Kursi takhta ini terletak di lantai satu katedral berlawanan arah dengan bagian 
 
 ![](https://i.lensdump.com/i/ZQoOSD.jpg)
 
-Kapel berbentuk *Dome* gaya *Gothic* di bangun mengelilingi  gereja Carolingian ini. Yang paling besar tentunya adalah \*the chancel \* dinamakan juga *“Aachen’s glass house”* karena jendelanya memikiki ketinggian sekitar 27 meters lebih dari 1000 meter persegi permukaan kaca. Setelah perang dunia II, katedral Aachen juga terkena dampaknya. Semua kacanya pecah dan selama 5 tahun lamanya terguyur hujan tanpa atap menyebabkan lukisan di dinding memudar.
+Kapel berbentuk *Dome* gaya *Gothic* di bangun mengelilingi  gereja *Carolingian* ini. Yang paling besar tentunya adalah* \*the chancel\** dinamakan juga *“Aachen’s glass house”* karena jendelanya memikiki ketinggian sekitar 27 meters lebih dari 1000 meter persegi permukaan kaca. Setelah perang dunia II, katedral Aachen juga terkena dampaknya. Semua kacanya pecah dan selama 5 tahun lamanya terguyur hujan tanpa atap menyebabkan lukisan di dinding memudar.
 
 ## 8.) Gothic & Carolingian Walls
 
