@@ -15,7 +15,7 @@ excerpt: >-
   karena itu kami udah rangkum 8 hal penting yang harus kalian tahu ada di dalam
   katedral Aachen.
 date: '2021-06-28'
-thumb_img_path: 'images/IMG_1488[1].JPG'
+thumb_img_path: 'images/IMG_1290[1].JPG'
 thumb_img_alt: A man fishing in a lake
 hide_header: true
 seo:
