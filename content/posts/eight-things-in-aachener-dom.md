@@ -51,7 +51,7 @@ seo:
       value: images/4.jpg
       relativeUrl: true
 layout: post
-content_img_path: images/thoughtful-spinach.JPG
+content_img_path: 'images/IMG_1290[1].JPG'
 ---
 ![](https://i3.lensdump.com/i/ZQoihH.jpg)
 
