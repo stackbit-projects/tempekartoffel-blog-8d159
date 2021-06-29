@@ -51,7 +51,6 @@ seo:
       value: images/4.jpg
       relativeUrl: true
 layout: post
-content_img_path: 'images/IMG_E1523[1].JPG'
 ---
 ![](https://i3.lensdump.com/i/ZQoihH.jpg)
 
