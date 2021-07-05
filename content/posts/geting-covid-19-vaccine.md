@@ -18,8 +18,7 @@ thumb_img_path: images/VAKSIN.JPG
 
 Jadi ada empat jenis vaksin yang dipakai di Jerman. Tiga diantaranya itu udah FDA *approved.* Tiga vaksin itu adalah *Pfizer* dari *Biontech*, *Moderna*, dan *Johnson& Johnson*. Ketiganya diberi izin untuk *emergency use*. Vaksin keempat adalah vaksin dari inggris yaitu *Astra Zeneca*. Kita berdua dapatnya *Pfizer*. Ini bakal agak panjang sih kalau diceritain, tapi sesuai sama yang aku bilang di atas bahwa ini murni berdasarkan pengalamanku sendiri ya. Maksudnya gimana? Makdusdku yaitu bisa aja proses dan prosedurnya berbeda. Ini hanya gambaran aja tahap dan prosedur yang aku jalani sampai bisa dapat vaksin di Jerman.
 
-> Tiga vaksin itu adalah* Pfizer* dari* Biontech*,* Moderna*, dan* Johnson& Johnson*.
-> Ketiganya diberi izin untuk* emergency use*.
+> ##### *Tiga vaksin itu adalah Pfizer dari Biontech, Moderna, dan Johnson& Johnson.&#xA;Ketiganya diberi izin untuk emergency use.*
 
 ## Lapor diri
 
