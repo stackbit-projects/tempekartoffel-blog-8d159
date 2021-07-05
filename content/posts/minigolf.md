@@ -1,6 +1,6 @@
 ---
 title: Our first VLOG!
-subtitle: 'Main minigolf musim panas di Aachen, Jerman,'
+subtitle: 'Main minigolf musim panas di Aachen, Jerman'
 excerpt: >-
   Beberapa minggu yang lalu kita berdua buat janji untuk ketemuan dengan teman
   kita. Akhirnya baru terlaksana hari ini. Mereka suggest main minigolf di
