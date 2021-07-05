@@ -3,7 +3,11 @@ title: AKHIRNYA!!!
 subtitle: Vaksin COVID 19 dosis pertama kita | Tahap dapat vaksin di Jerman
 date: '2021-07-05'
 thumb_img_alt: lorem-ipsum
-excerpt: Vaksin COVID 19 dosis pertama kita | Tahap dapat vaksin di Jerman
+excerpt: >-
+  Setelah kita buat janji temu, kita print lembar konfirmasinya. Kalian WAJIB
+  buat termin dulu dan bawa lembar konfrimasinya ya. Kalau gak gak akan dikasih
+  masuk ke tempat vaksinnya. Pas kita antri di bagian cek identitas ada ibu-ibu
+  dateng gak punya termin, ya gak boleh masuk.
 hide_header: false
 seo:
   title: ''
