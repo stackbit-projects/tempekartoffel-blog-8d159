@@ -14,16 +14,16 @@ seo:
 layout: post
 thumb_img_path: images/VAKSIN.JPG
 ---
-**DISCLAIMER**: ini berdasarkan pengalaman kita (khususnya Monica) sendiri ya guys. Kita berharap kalian semua mungkin yang belum divaksin bisa dapat kesempatan yang sama secepatnya.
+**DISCLAIMER**: ini berdasarkan pengalaman kita sendiri ya guys (khususnya Monica sebagai *ausländer *di Jerman) . Kita berharap kalian semua mungkin yang belum divaksin bisa dapat kesempatan yang sama secepatnya.
 
-Jadi ada empat jenis vaksin yang dipakai di Jerman. Tiga diantaranya itu udah FDA *approved.* Tiga vaksin itu adalah *Pfizer* dari *Biontech*, *Moderna*, dan *Johnson& Johnson*. Ketiganya diberi izin untuk *emergency use*. Vaksin keempat adalah vaksin dari inggris yaitu *Astra Zeneca*. Kita berdua dapatnya *Pfizer*. Ini bakal agak panjang sih kalau diceritain, tapi sesuai sama yang aku bilang di atas bahwa ini murni berdasarkan pengalamanku sendiri ya. Maksudnya gimana? Makdusdku yaitu bisa aja proses dan prosedurnya berbeda. Ini hanya gambaran aja tahap dan prosedur yang aku jalani sampai bisa dapat vaksin di Jerman.
+Jadi ada empat jenis vaksin yang dipakai di Jerman. Tiga diantaranya itu udah FDA *approved.* Tiga vaksin itu adalah *Pfizer* dari *Biontech*, *Moderna*, dan *Johnson& Johnson*. Ketiganya diberi izin untuk *emergency use*. Vaksin keempat adalah vaksin dari inggris yaitu *Astra Zeneca*. Kita berdua dapatnya *Pfizer*. Ini bakal agak panjang sih kalau diceritain semua, tapi secara singkat aku rangkum ya dan sesuai sama yang aku bilang di atas bahwa ini murni berdasarkan pengalamanku sendiri. Maksudnya gimana? Makdusdku yaitu bisa aja proses dan prosedurnya berbeda. Ini hanya gambaran aja tahap dan prosedur yang aku jalani sampai bisa dapat vaksin di Jerman.
 
 > Tiga vaksin itu adalah Pfizer dari Biontech, Moderna, dan Johnson& Johnson.
 > Ketiganya diberi izin untuk emergency use.
 
 ## Lapor diri
 
-Jadi aku kesini tuh pakai *besuch visum* atau visa kunjungan. Tapi aku juga udah punya *sprachkurs visum* atau visa kursus bahasa. Oleh karena itu juga aku sudah *angemeldet* di *Einwohnermeldeamt. Dengan kata lain aku sudah lapor diri akan berdomisili di Aachen. Kesimpulan kita berdua sih mungkin karena sudah jadi Aachener burger atau warga Aachen jadi otomatis berhak dapat vaksin juga. Tapi kami gak tahu akan applied ke semua bundesland* dan kota lain apa gak ya kalu kasus kalian sama kaya kasus aku. Karena di Jerman keputusan birokrasi itu bisa beda-beda untuk tiap individu. Tapi kalau kalian gak masuk kategori kaya kasus aku ya udah pasti berhak dapat juga.
+Jadi aku kesini tuh pakai *besuch visum* atau visa kunjungan. Tapi aku juga udah punya *sprachkurs visum* atau visa kursus bahasa. Oleh karena itu juga aku sudah *angemeldet* di *Einwohnermeldeamt. Dengan kata lain aku sudah lapor diri akan berdomisili di Aachen. Kesimpulan kita berdua sih mungkin karena sudah jadi Aachener burger atau warga Aachen jadi otomatis berhak dapat vaksin juga. Tapi kami gak tahu akan applied ke semua bundesland* dan kota lain apa gak ya kalau kasus kalian sama kaya kasus aku. Karena di sini keputusan birokrasi itu bisa beda-beda untuk tiap individu. Tapi kalau kalian gak masuk kategori kaya kasus aku ya udah pasti berhak dapat juga.
 
 ## Buat *termin*
 
@@ -58,6 +58,3 @@ Karena aku gak punya buku vaksin jadi beli di apotik harganya 1 Euro aja. Punya 
 ## Vaccination day!!🎉
 
 Setelah semua dokumen siap, ya udah tinggal nunggu hari-H buat vaksin. Usahain untuk *stay fit*. Makan yang cukup dan bergizi, tidur cukup jangan begadang dan minum air putih yang banyak. Setelah 2-3 jam divaksin kita cuma rasain sakit dilengan bekas suntik, pas awal gak sakit sama sekali. Dokternya ngajakin ngobrol, ya basa-basi dikit sih buat *distract* kita dan eh tahu-tahu udah selesai. Gak berasa sakit sama sekali. Selain itu, kita juga jadi ngantukan sama laperan pengen makan terus haha 😂 *other than that we are fine*.
-
-
-
