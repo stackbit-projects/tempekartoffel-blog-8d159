@@ -1,8 +1,6 @@
 ---
 title: 8 Things Inside The Aachener Dom You NEED to Know!!!
-subtitle: >-
-  Beberapa barang penting yang ada di dalam katedral Aachen yang harus kalian
-  ketahui
+subtitle: Beberapa barang di dalam katedral Aachen yang wajib kalian ketahui sejarahnya.
 excerpt: >-
   So kalian udah tahu kan ya, Aachener Dom atau Aix-la-Chapelle dalam bahasa
   perancis, dan atau Aken dalam bahasa belanda dibangun circa 796 AD. Charles I
