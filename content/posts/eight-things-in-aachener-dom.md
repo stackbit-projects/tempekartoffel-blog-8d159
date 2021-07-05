@@ -63,7 +63,6 @@ Oleh karena itu kami udah rangkum 8 hal penting yang harus kalian tahu ada di da
 
 Bagian Oktagon ini adalah titik terpenting dalam katedral Aachen karena merupakan bagian asli dari kapel *Charlemagne*-Palatine Chapel. Dibangun sebagai kapel istana dengan inspirasi model bangunan zaman *Byzantium* misalnya seperti *Basilika San Vitale di Ravenna* dan *Little Hagia Sophia* di Konstantinopel. Arsiteknya kapel ini adalah Odo dari Metz. Desain asli kapel yang sebenarnya adalah ruangan berbentuk segi delapan berkubah yang di bagian luar diselimuti oleh dinding bersisi 16.
 
-
 ## 2.) Pala d'Oro
 
 ![](https://i1.lensdump.com/i/ZQoAqk.jpg)
@@ -80,7 +79,7 @@ Lampu gantung emas Barbarossa merupakan sebuah objek hasil donasi yang diberikan
 
 ![](https://i2.lensdump.com/i/ZQop23.jpg)
 
-Kalian bisa lihat sarkofagus *Charlemagne* dari dekat hanya dengan *guided tour* ya guys. Di dalam *shrine* ini terdapat *relics* yang merupakan sisa bagian tubuh kaisar. *Guide* kami cerita bahwa *shrine* ini dibuat sebagai alat propaganda politik, karena pada masanya ia tidak akur dengan gereja di Roma, Italia. Ia menganggap dirinya sebagai utusan Tuhan. Kita bisa lihat langsung di bagian depan sarkofagus ini terdapat tiga figur. Sebelah kiri adalah Paus berdiri, di tengah adalah dirinya sendiri duduk di atas takhta-di tangan kanannya ada miniatur gereja, dan di sebelah kanan adalah uskup juga berdiri. Di bagian atas ada figur Tuhan Yesus yang secara langsung memberkatinya. Dan sarkofagus ini dikelilingi oleh figur bukan 12 santo. Berbeda dengan* shrines of the Virgin Mary* yang dikelilingi oleh 12 santo dan dibagian tengah adalah figur Tuhan Yesus sendiri.Sampai sini apa kalian paham pesan apa yang ingin ia sampaikan? Figur sang kaisar lebih besar meskipun ia duduk, dibandingkan 2 figur disebelahnya yang berdiri.
+Kalian bisa lihat sarkofagus *Charlemagne* dari dekat hanya dengan *guided tour* ya guys. Di dalam *shrine* ini terdapat *relics* yang merupakan sisa bagian tubuh kaisar. *Guide* kami cerita bahwa *shrine* ini dibuat sebagai alat propaganda politik, karena pada masanya ia tidak akur dengan gereja di Roma, Italia. Ia menganggap dirinya sebagai utusan Tuhan. Kita bisa lihat langsung di bagian depan sarkofagus ini terdapat tiga figur. Sebelah kiri adalah Paus berdiri, di tengah adalah dirinya sendiri duduk di atas takhta-di tangan kanannya ada miniatur gereja, dan di sebelah kanan adalah uskup juga berdiri. Di bagian atas ada figur Tuhan Yesus yang secara langsung memberkatinya. Dan sarkofagus ini dikelilingi oleh figur bukan 12 santo. Berbeda dengan\* shrines of the Virgin Mary\* yang dikelilingi oleh 12 santo dan dibagian tengah adalah figur Tuhan Yesus sendiri.Sampai sini apa kalian paham pesan apa yang ingin ia sampaikan? Figur sang kaisar lebih besar meskipun ia duduk, dibandingkan 2 figur disebelahnya yang berdiri.
 
 ## 5.) Shrines of the Virgin Mary
 
@@ -103,3 +102,5 @@ Kapel berbentuk *Dome* gaya *Gothic* di bangun mengelilingi  gereja *Carolingian
 Masih di lantai satu dekat organ dan bagian koor, kalian masih bisa lihat dinding gaya *Gothic* dan *Carolingian* katedral Aachen.
 
 ![](https://i2.lensdump.com/i/ZQozRA.jpg)
+
+Jadi itu tadi delapan hal di dalam katedral Aaachen dan sejarahnya. Bagian mana yang kalian paling suka guys?
