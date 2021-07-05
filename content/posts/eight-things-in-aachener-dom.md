@@ -1,15 +1,6 @@
 ---
 title: 8 Things Inside The Aachener Dom You NEED to Know!!!
 subtitle: Beberapa barang di dalam katedral Aachen yang wajib kalian ketahui sejarahnya.
-excerpt: >-
-  So kalian udah tahu kan ya, Aachener Dom atau Aix-la-Chapelle dalam bahasa
-  perancis, dan atau Aken dalam bahasa belanda dibangun circa 796 AD. Charles I
-  atau Charles The Great dan atau lebih dikenal dengan sebutan Charlemagne
-  adalah yang memberi perintah untuk membangun katedral ini. He was the king of
-  the Franks, Emperor in western Europe. Aachen was his favorite royal
-  residence. Charlemagne pada waktu itu ingin bangun gereja St. Mary mirip
-  seperti kota Yerusalem, yang merupakan simbol adanya kontak antara bumi dan
-  surga. Pembangunannya butuh banyak usaha, dana, dan waktu yang lama.
 date: '2021-06-28'
 thumb_img_path: 'images/IMG_1488[1].JPG'
 thumb_img_alt: A man fishing in a lake
