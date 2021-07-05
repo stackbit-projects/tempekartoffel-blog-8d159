@@ -31,7 +31,7 @@ Nah setelah itu baru deh cari dan buat termin. Sebelumnya vaksin covid ini baru 
 
 ## Dokumen
 
-Beberapa dokumen dalam bentuk hard copy yang kita siapin:
+Beberapa dokumen dalam bentuk *hard copy* yang kita siapin dan bawa ke tempat vaksin:
 
 1.  *Terminbestätigung*
 
@@ -48,3 +48,7 @@ Setelah isi anamnesis kita disuruh lanjut ke antrian cek identitas. Aku cuma nun
 4\. *Krankenversicherung*
 
 Kita bawa *just in case*, tapi sebenarnya gak ditanya atau suruh nunjukkin sih.
+
+5\. *Impfpass*
+
+Karena aku gak punya buku vaksin jadi beli di apotik harganya 1 Euro aja. Punya Stefan udah lepek banget by the way karena dia punya dari bayi. Aku gak tahu ya kalau di Indonesia dulu dikasih apa gak apa emang punya tapi hilang hahaha. Gak patut dicontoh kalau hilang. 
