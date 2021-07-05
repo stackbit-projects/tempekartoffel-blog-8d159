@@ -1,6 +1,6 @@
 ---
 title: AKHIRNYA!!!
-subtitle: Vaksin dosis pertama di Jerman
+subtitle: Vaksin COVID 19 dosis pertama kita
 date: '2021-07-05'
 thumb_img_alt: lorem-ipsum
 excerpt: lorem-ipsum
