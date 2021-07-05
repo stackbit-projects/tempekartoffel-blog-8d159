@@ -1,6 +1,6 @@
 ---
 title: AKHIRNYA!!!
-subtitle: lorem-ipsum
+subtitle: Vaksin dosis pertama di Jerman
 date: '2021-07-05'
 thumb_img_alt: lorem-ipsum
 excerpt: lorem-ipsum
