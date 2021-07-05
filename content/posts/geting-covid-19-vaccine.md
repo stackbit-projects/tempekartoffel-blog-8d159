@@ -23,7 +23,7 @@ Jadi ada empat jenis vaksin yang dipakai di Jerman. Tiga diantaranya itu udah FD
 
 ## Lapor diri
 
-Jadi aku kesini tuh pakai *besuch visum* atau visa kunjungan. Tapi aku juga udah punya *sprachkurs visum* atau visa kursus bahasa. Oleh karena itu juga aku sudah *angemeldet *di *Einwohnermeldeamt. Dengan kata lain aku sudah lapor diri akan berdomisili di Aachen. Kesimpulan kita berdua sih mungkin karena sudah jadi Aachener burger atau warga Aachen jadi otomatis berhak dapat vaksin juga. Tapi kami gak tahu akan applied ke semua bundesland* dan kota lain apa gak ya kalu kasus kalian sama kaya kasus aku. Karena di Jerman keputusan birokrasi itu bisa beda-beda untuk tiap individu. Tapi kalau kalian gak masuk kategori kaya kasus aku ya udah pasti berhak dapat juga.
+Jadi aku kesini tuh pakai *besuch visum* atau visa kunjungan. Tapi aku juga udah punya *sprachkurs visum* atau visa kursus bahasa. Oleh karena itu juga aku sudah \*angemeldet \*di *Einwohnermeldeamt. Dengan kata lain aku sudah lapor diri akan berdomisili di Aachen. Kesimpulan kita berdua sih mungkin karena sudah jadi Aachener burger atau warga Aachen jadi otomatis berhak dapat vaksin juga. Tapi kami gak tahu akan applied ke semua bundesland* dan kota lain apa gak ya kalu kasus kalian sama kaya kasus aku. Karena di Jerman keputusan birokrasi itu bisa beda-beda untuk tiap individu. Tapi kalau kalian gak masuk kategori kaya kasus aku ya udah pasti berhak dapat juga.
 
 ## Buat termin
 
@@ -33,6 +33,14 @@ Nah setelah itu baru deh cari dan buat termin. Sebelumnya vaksin covid ini baru 
 
 Beberapa dokumen dalam bentuk hard copy yang kita siapin:
 
-1.  Terminbestätigung
+1.  *Terminbestätigung*
 
-Setelah kita buat janji temu, kita print lembar konfirmasinya. Kalian **WAJIB **buat termin dulu dan bawa lembar konfrimasinya ya. Kalau gak gak akan dikasih masuk ke tempat vaksinnya. Pas 
+Setelah kita buat janji temu, kita print lembar konfirmasinya. Kalian **WAJIB** buat termin dulu dan bawa lembar konfrimasinya ya. Kalau gak gak akan dikasih masuk ke tempat vaksinnya. Pas kita antri di bagian cek identitas ada ibu-ibu dateng gak punya termin, ya gak boleh masuk. 
+
+2\. *Anamnese* & *Impfeinwilligung*
+
+Lembar ini isinya adalah pertanyaan seperti misalnya punya alergi apa gak, lagi konsumsi obat apa dll. Satunya lembar pernyataan kalau kita setuju untuk divaksin.
+
+3\. P*ersonalausweis* atau *Reisepass*
+
+Setelah isi anamnesis kita disuruh lanjut ke antrian cek identitas. Aku cuma nunjukkin paspor aja, kalau Stefan nunjukkin KTP-nya.
