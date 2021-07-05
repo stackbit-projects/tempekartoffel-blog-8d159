@@ -1,5 +1,5 @@
 ---
-title: "UNESCO'S WORLD HERITAGE SITE\U0001F3F0 #1STGIVEAWAY"
+title: "UNESCO'S WORLD HERITAGE SITE \U0001F3F0 | OUR #1STGIVEAWAY"
 excerpt: "Kita beri nama MIT UNS DURCH yang artinya \"\U0001D483\U0001D486\U0001D493\U0001D494\U0001D482\U0001D48E\U0001D482 \U0001D48C\U0001D482\U0001D48E\U0001D48A \U0001D48C\U0001D486...\" karena kita berdua ingin kalian bisa melihat dan merasakan juga apa yang kita lihat dan rasakan. Walau hanya melihat melalui layar dan mendengar melalui audio gadget kalian. Think it as a window or a door through another time or even world kaya Alice in Wonderland gitulah. We hope that our photography & videography lacking skills setidaknya masih mumpuni ya untuk merealisasikan niat kami berdua ini."
 date: '2021-06-28'
 thumb_img_alt: A man standing on a rock cliff overlooking a river
