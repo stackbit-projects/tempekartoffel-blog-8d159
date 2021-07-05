@@ -56,7 +56,7 @@ Sedangkan dua teman kita udah sampe duluan. Kita emang janjian buat ketemuan lan
 
 ![](/\_static/app-assets/IMG\_0744%5B1%5D.JPG)
 
-Namanya itu *Gut Entenfuhl*. Di bagian depan ada restorannya, terus baru di bagian belakang itu lapangan minigolfnya. Tapi sebenarnya kalau dari arah masuk kita akan lihat lapangan minigolfnya dulu sih. Baru parkiran mobil, baru jalan masuk ke restoran. Jadi kaya setengah lingkaran gitu. Tempatnya luas banget. Ada tempat bermain anak-anak, danau kecil, dan padang hijau. Mungkin dinamain *Entenfuhl* karena ada angsa kali ya. Kan dalam bahasa Jerman angsa itu *Gans* masih satu keluarga sama *Enten* atau bebek. Ngasal banget ya haha next time kalau kesana aku tanya deh, soalnya pengen kesana lagi. Seru banget, walau kesananya PR abis. Minigolf ini memang cuma buka waktu musim panas aja..ya kali mau main di luar pas *winter*, yang ada masuk angin hehe. Minigolf-Saison ini udah buka sejak bulan Maret tahun ini sampai nanti tutup bulan November. Buka setiap ahri jam 11:00-19:00 tapi hari Rabu sama pas *Christ Himmelfahrt* mereka tutup. Harga tiket masuknya juga gak terlalu mahal, apalagi kalau kamu \*student. \*Bisa banget pake kartu pelajar kita. Ini harga tiket buat masuk dan main 18-*Loch-Runde* ya, karena ada delapan belas trek minigolf yang harus kita mainin.
+Namanya itu *Gut Entenfuhl*. Di bagian depan ada restorannya, terus baru di bagian belakang itu lapangan minigolfnya. Tapi sebenarnya kalau dari arah masuk kita akan lihat lapangan minigolfnya dulu sih. Baru parkiran mobil, baru jalan masuk ke restoran. Jadi kaya setengah lingkaran gitu. Tempatnya luas banget. Ada tempat bermain anak-anak, danau kecil, dan padang hijau. Mungkin dinamain *Entenfuhl* karena ada angsa kali ya. Kan dalam bahasa Jerman angsa itu *Gans* masih satu keluarga sama *Enten* atau bebek. Ngasal banget ya haha next time kalau kesana aku tanya deh, soalnya pengen kesana lagi. Seru banget, walau kesananya PR abis. Minigolf ini memang cuma buka waktu musim panas aja..ya kali mau main di luar pas *winter*, yang ada masuk angin hehe. Minigolf-Saison ini udah buka sejak bulan Maret tahun ini sampai nanti tutup bulan November. Buka setiap ahri jam 11:00-19:00 tapi hari Rabu sama pas *Christ Himmelfahrt* mereka tutup. Harga tiket masuknya juga gak terlalu mahal, apalagi kalau kamu *student*. Bisa banget pake kartu pelajar kita. Ini harga tiket buat masuk dan main 18-*Loch-Runde* ya, karena ada delapan belas trek minigolf yang harus kita mainin.
 
 Anak-anak sampai umur 10 tahun - 2,50 Euro
 
@@ -64,7 +64,7 @@ Mahasiswa & pelajar - 3 Euro
 
 Dewasa - 3,50 Euro
 
-Atau kalau kita datang satu grup gitu dari 10 orang bisa dapat 10% diskon. Lumayan juga, tapi karena pandemi grup dari 8 orang harus *anmelden *dulu paling gak sehari sebelum mau berkunjung.
+Atau kalau kita datang satu grup gitu dari 10 orang bisa dapat 10% diskon. Lumayan juga, tapi karena pandemi grup dari 8 orang harus \*anmelden \*dulu paling gak sehari sebelum mau berkunjung.
 
 > Minigolf ini memang cuma buka waktu musim panas aja..ya kali mau main di luar pas *winter*, yang ada masuk angin hehe
 
