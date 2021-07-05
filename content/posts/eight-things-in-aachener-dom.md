@@ -1,5 +1,5 @@
 ---
-title: 8 Things Inside The Aachener Dom
+title: 8 Things Inside The Aachener Dom You NEED to Know!!!
 subtitle: >-
   Beberapa barang penting yang ada di dalam katedral Aachen yang harus kalian
   ketahui
