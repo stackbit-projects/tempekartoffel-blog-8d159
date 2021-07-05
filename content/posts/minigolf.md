@@ -64,7 +64,7 @@ Mahasiswa & pelajar - 3 Euro
 
 Dewasa - 3,50 Euro
 
-Atau kalau kita datang satu grup gitu dari 10 orang bisa dapat 10% diskon. Lumayan juga, tapi karena pandemi grup dari 8 orang harus \*anmelden \*dulu paling gak sehari sebelum mau berkunjung.
+Atau kalau kita datang satu grup gitu dari 10 orang bisa dapat 10% diskon. Lumayan juga, tapi karena pandemi grup dari 8 orang harus *anmelden* dulu paling gak sehari sebelum mau berkunjung.
 
 > Minigolf ini memang cuma buka waktu musim panas aja..ya kali mau main di luar pas *winter*, yang ada masuk angin hehe
 
