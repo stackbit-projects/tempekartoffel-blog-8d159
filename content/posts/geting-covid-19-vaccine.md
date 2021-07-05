@@ -35,7 +35,7 @@ Beberapa dokumen dalam bentuk hard copy yang kita siapin:
 
 1.  *Terminbestätigung*
 
-Setelah kita buat janji temu, kita print lembar konfirmasinya. Kalian **WAJIB** buat termin dulu dan bawa lembar konfrimasinya ya. Kalau gak gak akan dikasih masuk ke tempat vaksinnya. Pas kita antri di bagian cek identitas ada ibu-ibu dateng gak punya termin, ya gak boleh masuk. 
+Setelah kita buat janji temu, kita print lembar konfirmasinya. Kalian **WAJIB** buat termin dulu dan bawa lembar konfrimasinya ya. Kalau gak gak akan dikasih masuk ke tempat vaksinnya. Pas kita antri di bagian cek identitas ada ibu-ibu dateng gak punya termin, ya gak boleh masuk.
 
 2\. *Anamnese* & *Impfeinwilligung*
 
@@ -44,3 +44,7 @@ Lembar ini isinya adalah pertanyaan seperti misalnya punya alergi apa gak, lagi 
 3\. P*ersonalausweis* atau *Reisepass*
 
 Setelah isi anamnesis kita disuruh lanjut ke antrian cek identitas. Aku cuma nunjukkin paspor aja, kalau Stefan nunjukkin KTP-nya.
+
+4\. *Krankenversicherung*
+
+Kita bawa *just in case*, tapi sebenarnya gak ditanya atau suruh nunjukkin sih.
