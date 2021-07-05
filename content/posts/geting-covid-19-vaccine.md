@@ -7,7 +7,7 @@ excerpt: >-
   Setelah kita buat janji temu, kita print lembar konfirmasinya. Kalian WAJIB
   buat termin dulu dan bawa lembar konfrimasinya ya. Kalau gak gak akan dikasih
   masuk ke tempat vaksinnya. Pas kita antri di bagian cek identitas ada ibu-ibu
-  dateng gak punya termin, ya gak boleh masuk.
+  dateng gak punya termin...
 hide_header: false
 seo:
   title: ''
