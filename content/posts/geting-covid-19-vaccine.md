@@ -12,6 +12,7 @@ seo:
   extra: []
   type: stackbit_page_meta
 layout: post
+thumb_img_path: images/VAKSIN.JPG
 ---
 **DISCLAIMER**: ini berdasarkan pengalaman kita (khususnya Monica) sendiri ya guys. Kita berharap kalian semua mungkin yang belum divaksin bisa dapat kesempatan yang sama secepatnya.
 
