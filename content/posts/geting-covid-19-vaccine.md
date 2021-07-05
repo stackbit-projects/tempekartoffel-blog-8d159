@@ -1,5 +1,5 @@
 ---
-title: lorem-ipsum
+title: AKHIRNYA!!!
 subtitle: lorem-ipsum
 date: '2021-07-05'
 thumb_img_alt: lorem-ipsum
