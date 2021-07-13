@@ -1,7 +1,7 @@
 ---
 title: Cara dapat uang 100€ GRATIS!!
 subtitle: lorem-ipsum
-date: '2021-07-28'
+date: '2021-06-28'
 thumb_img_alt: lorem-ipsum
 excerpt: lorem-ipsum
 hide_header: false
