@@ -1,5 +1,5 @@
 ---
-title: lorem-ipsum
+title: Cara dapat uang 100€ GRATIS!!
 subtitle: lorem-ipsum
 date: '2021-07-13'
 thumb_img_alt: lorem-ipsum
