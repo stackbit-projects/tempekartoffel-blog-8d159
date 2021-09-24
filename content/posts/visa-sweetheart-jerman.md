@@ -14,9 +14,9 @@ thumb_img_path: images/IMG_6225.JPG
 ---
 ## Pandemi kini bukan penghalang lagi
 
-Mungkin tahun 2019-2021 merupakan tahun tahun terberat bagi banyak pasangan *LDR (long distance relationship)*, apalagi yang ketemunya cuma bisa setahun sekali. Tapi seperti pepatah "\*Berakit-rakit ke hulu berenang ke tepian, bersakit-sakit dahulu bersenang senang kemudian."\* kini para pasangan ini bisa kembali reuni dengan pasangan masing-masing. Dari banyak pasangan itu termasuk juga didalamnya kita berdua. Pada 8 Agustus akhrinya setelah beberapa bulan menggebu-gebu ikut menyuarakan kampanye #LoveIsNotTourism, pemerintah Jerman melalui BMI (*Bundesministerium des Innern, für Bau und Heimat) di akun resmi twitter mereka dan websitenya mengumumkan berita bahagia ini:*
+Mungkin tahun 2019-2021 merupakan tahun tahun terberat bagi banyak pasangan *LDR (long distance relationship)*, apalagi yang ketemunya cuma bisa setahun sekali. Tapi seperti pepatah *"Berakit-rakit ke hulu berenang ke tepian, bersakit-sakit dahulu bersenang senang kemudian*." kini para pasangan ini bisa kembali reuni dengan pasangan masing-masing. Dari banyak pasangan itu termasuk juga didalamnya kita berdua. Pada 8 Agustus akhrinya setelah beberapa bulan menggebu-gebu ikut menyuarakan kampanye #LoveIsNotTourism, pemerintah Jerman melalui BMI (*Bundesministerium des Innern, für Bau und Heimat) di akun resmi twitter mereka dan websitenya mengumumkan berita bahagia ini:*
 
-<https://twitter.com/BMI_Bund/status/1291979153416138752?s=20>
+
 
 > "From today, unmarried partners can enter Germany again from third
 > countries. I am delighted that we are now able to make this possible
@@ -37,13 +37,11 @@ Kalian bisa download link untuk mengisi formulir di sini:
 
 [2.](https://videx.diplo.de/videx/desktop/index.html#start2.) Lembar Pernyataan Perjalanan
 
-
 Kalian bisa download link untuk mengisi formulir di sini:
 https://jakarta.diplo.de/blob/1807778/6ca7f1bf2c528816f5533155e46c133e/belehrungen---reiseverlauf-data.pdf
 https://jakarta.diplo.de/blob/2480132/d153cf2efc27d5b64e4e6bebd56f2e25/einverstaendniserklaerung---kontaktaufnahme-per-e-mail-idn-data.pdf
 
 3\. Paspport
-
 
 ⦁	Berlaku tidak kurang dari 3 bulan dari masa nerakhir visa yang diminta
 ⦁	Masih berlaku tidak lebih 10 tahun
@@ -51,18 +49,15 @@ https://jakarta.diplo.de/blob/2480132/d153cf2efc27d5b64e4e6bebd56f2e25/einversta
 
 4\. Pass foto
 
-
 Aturan pass foto adalah:
 ⦁	Ukuran 3,5 x 4,5 cm
 ⦁	Warna putih atau abu-abu terang
 ⦁	Wajah harus mencakup 80 % foto
 
-
 Contoh foto:
 https://www.bundesdruckerei.de/system/files/dokumente/pdf/Sample-Photos-For-ID-Documents.pdf
 
 5\. Biaya selama perjalanan
-
 
 ⦁	Biaya sendiri: buku tabungan/rekening 3 bulan terakhir
 ⦁	Biaya orang tua/keluarga: buku tabungan/rekening 3 bulan terakhir + Kartu Keluarga / Akta Kelahiran
@@ -87,7 +82,6 @@ Booking hotel confirmation, atau kalau tinggal dengan pasangan sertakan Mietvert
 
 7\. Bukti/Status di Indonesia
 
-
 ⦁	Pegawai: slip gaji 3 bulan terakhir, kontrak kerja -> harus translate dari bahasa Indonesia ke bahasa Inggris/Jerman
 ⦁	Self-employed/punya perusahaan atau bisnis: SIUP (Surat Izin Usaha Perdagangan), bukti pajak
 ⦁	Freelancer: bukti singkat/contoh portofolio buat dalam satu halaman termasuk sosial media atau website, kontrak dengan klien minimal 3, bukti pembayaran dari klien
@@ -99,7 +93,6 @@ Gak harus tiket yang sudah issued, bisa pakai dummy tiket.
 
 9\. Asuransi kesehatan perjalanan
 
-
 ⦁	Valid selama masa tinggal di Jerman
 ⦁	Minimal cakupan 30.000€ mencakup evakuasi dan repatriasi
 
@@ -109,7 +102,6 @@ https://jakarta.diplo.de/blob/2479002/467db3d01851eb5f6d0945b8a8616b87/rkv-nur-l
 
 10\. Tujuan perjalanan
 
-
 Karena judulnya visa sweetheart, tentu saja tujuannya adalah untuk ketemu pasangan. Jadi dokumen yang kalian perlu adalah:
 ⦁	Surat undangan personal
 ⦁	Personalausweis pasangan
@@ -118,7 +110,6 @@ Karena judulnya visa sweetheart, tentu saja tujuannya adalah untuk ketemu pasang
 
 11\. Erklärung zur Beziehung (deklarasi hubungan)
 
-
 Ini ada dua jenis:
 ⦁	Declaration of existence relationship: kamu pakai form ini kalau pasangan kamu di Jerman mau mengundang kamu datang ke Jerman.
 ⦁	Urgent reason for entry: kamu pakai form ini kalau pasangan kamu posisinya ada di Indonesia dan mau mengundang kamu ke Jerman, sehingga kalian akan travel bersama-sama ke Jerman.
@@ -126,4 +117,4 @@ Ini ada dua jenis:
 12\. Print appointment confirmation
 
 13\. Biaya visa
-80€ dalam rupiah sekitar 1.350.000 tergantung currency saat itu. Saran kita bawa pecahan uang kecil-besar.
+80€ dalam rupiah sekitar 1.350.000 tergantung currency saat itu. Saran kita bawa pecahan uang kecil-besar.![](https://twitter.com/BMI_Bund/status/1291979153416138752?s=20)
