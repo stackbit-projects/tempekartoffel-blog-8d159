@@ -10,7 +10,7 @@ seo:
   robots: []
   extra: []
 layout: post
-title: 'BIKIN VISA SWEETHEART KE JERMAN '
+title: BIKIN VISA SWEETHEART KE JERMAN DI MASA PANDEMI
 ---
 ## Lorem ipsum
 
