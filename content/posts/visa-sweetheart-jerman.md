@@ -33,26 +33,26 @@ Kalian bisa download link untuk mengisi formulir di sini: https://videx.diplo.de
 
 ![](images/Web_Photo_Editor\(6\).jpg)
 
-1.  Lembar Pernyataan Perjalanan
+2.Lembar Pernyataan Perjalanan
 
-2.  Passport
+1.  Passport
 
-3.  Pass photo
+2.  Pass photo
 
-4.  Biaya perjalanan
+3.  Biaya perjalanan
 
-5.  Bukti akomodasi
+4.  Bukti akomodasi
 
-6.  Bukti/Status di Indonesia
+5.  Bukti/Status di Indonesia
 
-7.  Booking flight
+6.  Booking flight
 
-8.  Asuransi kesehatan perjalanan
+7.  Asuransi kesehatan perjalanan
 
-9.  Tujuan perjalanan
+8.  Tujuan perjalanan
 
-10. Formulir deklarasi hubungan (Erklärung zur Beziehung)
+9.  Formulir deklarasi hubungan (Erklärung zur Beziehung)
 
-11. Print appointment confirmation
+10. Print appointment confirmation
 
-12. Fee![](https://twitter.com/BMI_Bund/status/1291979153416138752?s=20)
+11. Fee![](https://twitter.com/BMI_Bund/status/1291979153416138752?s=20)
