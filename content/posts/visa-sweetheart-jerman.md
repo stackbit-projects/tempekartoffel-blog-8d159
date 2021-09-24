@@ -20,13 +20,13 @@ Mungkin tahun 2019-2021 merupakan tahun tahun terberat bagi banyak pasangan *LDR
 > countries. I am delighted that we are now able to make this possible
 > within a European framework,” said Federal Minister of the Interior Horst Seehofer.
 
-Visa sweetheart ini juga dikenal dengan nama exemption visa dan atau visa visit with exceptional trips. Visa ini adalah visa Schengen tipe C yang masuk ke dalam kategori visa jangka pendek (maksimal 90n hari, contohnya liburan, perjalanan bisnis, dan atau kunjungan). Oleh karena itu kita mengajukan permmohonan kita tidak lagi ke Kedutaan Besar Jerman di Jakarta. Karena sejak 21 Januari 2019, Kedutaan Besar Jerman di Jakarta telah mengalihluarkan penanganan permohonan Visa Schengen dengan negara Jerman atau Latvia sebagai negara tujuan utama atau sebagai negara yang pertama dikunjungi untuk perjalanan dengan durasi kunjungan yang sama di negara Schengen lainnya kepada kantor VFS Global di Jakarta. Jadi kita mengajukan permohonan visa kita ke VFS Global di Kuningan Mall City Jakarta. kalian bisa lihat website VFS juga di sini [www.vfsglobal.com/germany/indonesia/](www.vfsglobal.com/germany/indonesia/)
+Visa sweetheart ini juga dikenal dengan nama exemption visa dan atau visa visit with exceptional trips. Visa ini adalah visa Schengen tipe C yang masuk ke dalam kategori visa jangka pendek (maksimal 90 hari, contohnya liburan, perjalanan bisnis, dan atau kunjungan). Oleh karena itu kita mengajukan permmohonan kita tidak lagi ke Kedutaan Besar Jerman di Jakarta. Karena sejak 21 Januari 2019, Kedutaan Besar Jerman di Jakarta telah mengalihluarkan penanganan permohonan Visa Schengen dengan negara Jerman atau Latvia sebagai negara tujuan utama atau sebagai negara yang pertama dikunjungi untuk perjalanan dengan durasi kunjungan yang sama di negara Schengen lainnya kepada kantor VFS Global di Jakarta. Jadi kita mengajukan permohonan visa kita ke VFS Global di Kuningan Mall City Jakarta. kalian bisa lihat website VFS juga di sini [www.vfsglobal.com/germany/indonesia/](www.vfsglobal.com/germany/indonesia/)
 
 Atau kalian juga bisa ke Konsul Kehormatan Jerman di Sanur (Bali), Medan (Sumatra) dan Surabaya (Jawa Timur). Oke, tanpa perlu diperpanjang lagi langsung aja kita bahas persyaratan dan dokumen apa aja yang kalian perlu siapkan untuk mengajukan permohonan visa sweetheart ini:
 
 1.  Formulir pendaftaran permohonan visa (visa application form)
 
-Kalian bisa download link untuk mengisi formulir di sini: 
+Kalian bisa download link untuk mengisi formulir di sini:
 
 [https://videx.diplo.de/videx/desktop/index.html#start](https://videx.diplo.de/videx/desktop/index.html#start2.)
 
@@ -39,7 +39,6 @@ Kalian bisa download link untuk mengisi formulir di sini:
 
 Kalian bisa download link untuk mengisi formulir di sini:
 https://jakarta.diplo.de/blob/1807778/6ca7f1bf2c528816f5533155e46c133e/belehrungen---reiseverlauf-data.pdf
-
 
 https://jakarta.diplo.de/blob/2480132/d153cf2efc27d5b64e4e6bebd56f2e25/einverstaendniserklaerung---kontaktaufnahme-per-e-mail-idn-data.pdf
 
