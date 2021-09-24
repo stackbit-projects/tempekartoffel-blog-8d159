@@ -25,4 +25,16 @@ Mungkin tahun 2019-2021 merupakan tahun tahun terberat bagi banyak pasangan *LDR
 
 Visa sweetheart ini juga dikenal dengan nama exemption visa dan atau visa visit with exceptional trips. Visa ini adalah visa Schengen tipe C yang masuk ke dalam kategori visa jangka pendek (maksimal 90n hari, contohnya liburan, perjalanan bisnis, dan atau kunjungan). Oleh karena itu kita mengajukan permmohonan kita tidak lagi ke Kedutaan Besar Jerman di Jakarta, melainkan ke VFS Global di Kuningan Mall City Jakarta atau juga bisa ke Konsul Kehormatan Jerman di Sanur (Bali), Medan (Sumatra) dan Surabaya (Jawa Timur). Oke, tanpa perlu diperpanjang lagi langsung aja kita bahas persyaratan dan dokumen apa aja yang kalian perlu siapkan untuk mengajukan permohonan visa sweetheart ini.
 
-1.
+1.  Formulir pendaftaran permohonan visa (visa application form)
+2.  Lembar Pernyataan Perjalanan
+3.  Passport
+4.  Pass photo
+5.  Biaya perjalanan
+6.  Bukti akomodasi
+7.  Bukti/Status di Indonesia
+8.  Booking flight
+9.  Asuransi kesehatan perjalanan
+10. Tujuan perjalanan
+11. Formulir deklarasi hubungan (Erklärung zur Beziehung)
+12. Print appointment confirmation
+13. Fee
