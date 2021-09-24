@@ -22,14 +22,7 @@ Mungkin tahun 2019-2021 merupakan tahun tahun terberat bagi banyak pasangan *LDR
 > "From today, unmarried partners can enter Germany again from third
 > countries. I am delighted that we are now able to make this possible
 > within a European framework,” said Federal Minister of the Interior Horst Seehofer.
->
->
->
->
 
-
-
-Visa sweetheart ini juga dikenal dengan nama exemption visa dan atau visa visit with exceptional trips. Visa ini adalah visa Schengen tipe C yang masuk ke dalam kategori visa jangka pendek (maksimal 90n hari, contohnya liburan, perjalanan bisnis, dan atau kunjungan). Oleh karena itu kita mengajukan permmohonan kita tidak lagi ke Kedutaan Besar Jerman di Jakarta, melainkan ke VFS Global di Kuningan Mall City Jakarta atau juga bisa ke kantor perwakilan Oke, tanpa perlu diperpanjang lagi langsung aja kita bahas persyaratan dan dokumen apa aja yang kalian perlu siapkan untuk mengajukan permohonan visa sweetheart ini. 
+Visa sweetheart ini juga dikenal dengan nama exemption visa dan atau visa visit with exceptional trips. Visa ini adalah visa Schengen tipe C yang masuk ke dalam kategori visa jangka pendek (maksimal 90n hari, contohnya liburan, perjalanan bisnis, dan atau kunjungan). Oleh karena itu kita mengajukan permmohonan kita tidak lagi ke Kedutaan Besar Jerman di Jakarta, melainkan ke VFS Global di Kuningan Mall City Jakarta atau juga bisa ke Konsul Kehormatan Jerman di Sanur (Bali), Medan (Sumatra) dan Surabaya (Jawa Timur). Oke, tanpa perlu diperpanjang lagi langsung aja kita bahas persyaratan dan dokumen apa aja yang kalian perlu siapkan untuk mengajukan permohonan visa sweetheart ini.
 
 1.
-
