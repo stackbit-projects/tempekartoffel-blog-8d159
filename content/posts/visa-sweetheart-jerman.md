@@ -29,17 +29,30 @@ Atau kalian juga bisa ke Konsul Kehormatan Jerman di Sanur (Bali), Medan (Sumatr
 
 1.  Formulir pendaftaran permohonan visa (visa application form)
 
+Kalian bisa download link untuk mengisi formulir di sini: https://videx.diplo.de/videx/desktop/index.html#start
 
+![](images/Web_Photo_Editor\(6\).jpg)
 
 1.  Lembar Pernyataan Perjalanan
+
 2.  Passport
+
 3.  Pass photo
+
 4.  Biaya perjalanan
+
 5.  Bukti akomodasi
+
 6.  Bukti/Status di Indonesia
+
 7.  Booking flight
+
 8.  Asuransi kesehatan perjalanan
+
 9.  Tujuan perjalanan
+
 10. Formulir deklarasi hubungan (Erklärung zur Beziehung)
+
 11. Print appointment confirmation
+
 12. Fee![](https://twitter.com/BMI_Bund/status/1291979153416138752?s=20)
