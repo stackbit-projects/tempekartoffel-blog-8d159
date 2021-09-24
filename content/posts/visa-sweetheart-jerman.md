@@ -27,32 +27,11 @@ Visa sweetheart ini juga dikenal dengan nama exemption visa dan atau visa visit 
 
 Atau kalian juga bisa ke Konsul Kehormatan Jerman di Sanur (Bali), Medan (Sumatra) dan Surabaya (Jawa Timur). Oke, tanpa perlu diperpanjang lagi langsung aja kita bahas persyaratan dan dokumen apa aja yang kalian perlu siapkan untuk mengajukan permohonan visa sweetheart ini:
 
-1.  Formulir pendaftaran permohonan visa (visa application form)
+## 1.Formulir pendaftaran permohonan visa (visa application form)
 
-Kalian bisa download link untuk mengisi formulir di sini: https://videx.diplo.de/videx/desktop/index.html#start
+Kalian bisa download link untuk mengisi formulir di sini: [https://videx.diplo.de/videx/desktop/index.html#start](https://videx.diplo.de/videx/desktop/index.html#startcontoh)
 
 ![](images/Web_Photo_Editor\(6\).jpg)
 
-2.Lembar Pernyataan Perjalanan
 
-1.  Passport
 
-2.  Pass photo
-
-3.  Biaya perjalanan
-
-4.  Bukti akomodasi
-
-5.  Bukti/Status di Indonesia
-
-6.  Booking flight
-
-7.  Asuransi kesehatan perjalanan
-
-8.  Tujuan perjalanan
-
-9.  Formulir deklarasi hubungan (Erklärung zur Beziehung)
-
-10. Print appointment confirmation
-
-11. Fee![](https://twitter.com/BMI_Bund/status/1291979153416138752?s=20)
