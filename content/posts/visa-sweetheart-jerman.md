@@ -139,6 +139,8 @@ Karena judulnya visa sweetheart, tentu saja tujuannya adalah untuk ketemu pasang
 *   Surat undangan personal
     ![](https://i1.lensdump.com/i/gZYlJA.jpg)
     [Link: Einladungsschreiben](https://i1.lensdump.com/i/gZYlJA.jpg?open=true)
+    ![]()
+    [Link: Invitation letter]
 
 *   Personalausweis pasangan
 
