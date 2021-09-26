@@ -157,6 +157,8 @@ Ini ada dua jenis:
 
 *   Urgent reason for entry: kamu pakai form ini kalau pasangan kamu posisinya ada di Indonesia dan mau mengundang kamu ke Jerman, sehingga kalian akan travel bersama-sama ke Jerman.
 
+*
+
 **12. Print appointment confirmation**
 ![](https://i2.lensdump.com/i/gZYLFk.jpg)
 [Link: Print Appointment Confirmation](https://i2.lensdump.com/i/gZYLFk.jpg?open=true)
