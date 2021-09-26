@@ -150,7 +150,7 @@ Ini ada dua jenis:
 
 12\. Print appointment confirmation
 ![](https://i2.lensdump.com/i/gZYzSM.jpg)
-https://i2.lensdump.com/i/gZYLFk.jpg
+
 
 
 13\. Biaya visa
