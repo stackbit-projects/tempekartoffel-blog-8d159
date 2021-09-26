@@ -122,7 +122,7 @@ Itinerary, kalian gak harus buat tapi kita selalu buat walaupun cuma akan stay d
 
 ⦁	Valid selama masa tinggal di Jerman
 ⦁	Minimal cakupan 30.000€ mencakup evakuasi dan repatriasi
-![](https://lensdump.com/i/gZYvpe)
+![](https://i1.lensdump.com/i/gZYvpe.jpg)
 ![](https://i.lensdump.com/i/gZYH2q.jpg)
 
 
