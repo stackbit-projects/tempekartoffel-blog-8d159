@@ -114,7 +114,7 @@ Booking hotel confirmation, atau kalau tinggal dengan pasangan sertakan Mietvert
 
 8\. Booking flight
 Gak harus tiket yang sudah issued, bisa pakai dummy tiket. 
-Itinerary
+Itinerary, kalian gak harus buat tapi kita selalu buat 
 
 9\. Asuransi kesehatan perjalanan
 
