@@ -80,22 +80,22 @@ https://www.bundesdruckerei.de/system/files/dokumente/pdf/Sample-Photos-For-ID-D
 
 5\. Biaya selama perjalanan
 
-⦁	Biaya sendiri: buku tabungan/rekening 3 bulan terakhir
-⦁	Biaya orang tua/keluarga: buku tabungan/rekening 3 bulan terakhir + Kartu Keluarga / Akta Kelahiran
-⦁	Biaya pasangan di Jerman: Verpflichtungserklärung (VE):
+- Biaya sendiri: buku tabungan/rekening 3 bulan terakhir
+- Biaya orang tua/keluarga: buku tabungan/rekening 3 bulan terakhir + Kartu Keluarga / Akta Kelahiran
+- Biaya pasangan di Jerman: Verpflichtungserklärung (VE):
 ![](https://i3.lensdump.com/i/gZYPJK.jpg)
 [Link: Verpflichtungserklärung Front](https://i3.lensdump.com/i/gZYPJK.jpg?open=true)
 ![](https://i.lensdump.com/i/gZYfeZ.jpg)
 [Link: Verpflichtungserklärung Back](https://i.lensdump.com/i/gZYfeZ.jpg?open=true)
 
 Dokumen membuat VE oleh pasangan kalian ke Ausländerbehörde:
-⦁	Mietvertrag (kontrak termpat tinggal)
-⦁	Slip 3 bulan gaji terakhir
-⦁	Kontrak kerja, Arbeitgeberbescheinigung
-⦁	Personalausweis
-⦁	Isi formulir VE
-⦁	Biaya 29 €
-⦁	Dikirim lembaran asli dan fotokopi. Nanti yang asli akan dikembalikan oleh VFS dan kalian harus bawa waktu terbang nanti karena akan dicek oleh bagian imigrasi di bandara.
+- Mietvertrag (kontrak termpat tinggal)
+- Slip 3 bulan gaji terakhir
+- Kontrak kerja, Arbeitgeberbescheinigung
+- Personalausweis
+- Isi formulir VE
+- Biaya 29 €
+- Dikirim lembaran asli dan fotokopi. Nanti yang asli akan dikembalikan oleh VFS dan kalian harus bawa waktu terbang nanti karena akan dicek oleh bagian imigrasi di bandara.
 
 Kalian bisa kirim dokumennya pakai:
 DHL Express: 5-7 hari kerja kirim ke Indonesia, ada nomor tracking, tapi agak mahal sekitar 72€
@@ -107,11 +107,11 @@ Booking hotel confirmation, atau kalau tinggal dengan pasangan sertakan Mietvert
 
 7\. Bukti/Status di Indonesia
 
-⦁	Pegawai: slip gaji 3 bulan terakhir, kontrak kerja -> harus translate dari bahasa Indonesia ke bahasa Inggris/Jerman
-⦁	Self-employed/punya perusahaan atau bisnis: SIUP (Surat Izin Usaha Perdagangan), bukti pajak
-⦁	Freelancer: bukti singkat/contoh portofolio buat dalam satu halaman termasuk sosial media atau website, kontrak dengan klien minimal 3, bukti pembayaran dari klien
-⦁	Real estate owners/kendaraan: bukti kepemilikan
-⦁	Mahasiswa: bukti aktif kuliah --> translate
+- Pegawai: slip gaji 3 bulan terakhir, kontrak kerja -> harus translate dari bahasa Indonesia ke bahasa Inggris/Jerman
+- Self-employed/punya perusahaan atau bisnis: SIUP (Surat Izin Usaha Perdagangan), bukti pajak
+- Freelancer: bukti singkat/contoh portofolio buat dalam satu halaman termasuk sosial media atau website, kontrak dengan klien minimal 3, bukti pembayaran dari klien
+- Real estate owners/kendaraan: bukti kepemilikan
+- Mahasiswa: bukti aktif kuliah --> translate
 
 8\. Booking flight
 Gak harus tiket yang sudah issued, bisa pakai dummy tiket.
@@ -121,8 +121,8 @@ Itinerary, kalian gak harus buat tapi kita selalu buat walaupun cuma akan stay d
 
 9\. Asuransi kesehatan perjalanan
 
-⦁	Valid selama masa tinggal di Jerman
-⦁	Minimal cakupan 30.000€ mencakup evakuasi dan repatriasi
+- Valid selama masa tinggal di Jerman
+- Minimal cakupan 30.000€ mencakup evakuasi dan repatriasi
 ![](https://i1.lensdump.com/i/gZYvpe.jpg)
 [Link: Insurance Part 1](https://i1.lensdump.com/i/gZYvpe.jpg?open=true)
 ![](https://i.lensdump.com/i/gZYH2q.jpg)
@@ -135,22 +135,22 @@ https://jakarta.diplo.de/blob/2479002/467db3d01851eb5f6d0945b8a8616b87/rkv-nur-l
 10\. Tujuan perjalanan
 
 Karena judulnya visa sweetheart, tentu saja tujuannya adalah untuk ketemu pasangan. Jadi dokumen yang kalian perlu adalah:
-⦁	Surat undangan personal
+- Surat undangan personal
 ![](https://i1.lensdump.com/i/gZYlJA.jpg)
 [Link: Einladungsschreiben](https://i1.lensdump.com/i/gZYlJA.jpg?open=true)
 
-⦁	Personalausweis pasangan
-⦁	Bukti hubungan (Transkrip chat atau voice/video call Whatsapp, email, foto-foto)
-⦁	Passport stamps (misalnya waktu kamu ke Jerman atau waktu pasangan kamu ke Indonesia)
+- Personalausweis pasangan
+- Bukti hubungan (Transkrip chat atau voice/video call Whatsapp, email, foto-foto)
+- Passport stamps (misalnya waktu kamu ke Jerman atau waktu pasangan kamu ke Indonesia)
 
 11\. Erklärung zur Beziehung (deklarasi hubungan)
 
 Ini ada dua jenis:
-⦁	Declaration of existence relationship: kamu pakai form ini kalau pasangan kamu di Jerman mau mengundang kamu datang ke Jerman.
+- Declaration of existence relationship: kamu pakai form ini kalau pasangan kamu di Jerman mau mengundang kamu datang ke Jerman.
 ![](https://i2.lensdump.com/i/gZYzSM.jpg)
 [Link: Erklärung zur Beziehung](https://i2.lensdump.com/i/gZYzSM.jpg?open=true)
 
-⦁	Urgent reason for entry: kamu pakai form ini kalau pasangan kamu posisinya ada di Indonesia dan mau mengundang kamu ke Jerman, sehingga kalian akan travel bersama-sama ke Jerman.
+- Urgent reason for entry: kamu pakai form ini kalau pasangan kamu posisinya ada di Indonesia dan mau mengundang kamu ke Jerman, sehingga kalian akan travel bersama-sama ke Jerman.
 
 12\. Print appointment confirmation
 ![](https://i2.lensdump.com/i/gZYLFk.jpg)
