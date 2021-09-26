@@ -25,6 +25,9 @@ layout: post
 title: BIKIN VISA SWEETHEART KE JERMAN DI MASA PANDEMI
 thumb_img_path: images/Header-min(1).jpg
 ---
+
+
+
 ## Pandemi kini bukan penghalang lagi
 
 Mungkin tahun 2019-2021 merupakan tahun tahun terberat bagi banyak pasangan *LDR (long distance relationship)*, apalagi yang ketemunya cuma bisa setahun sekali. Tapi seperti pepatah *"Berakit-rakit ke hulu berenang ke tepian, bersakit-sakit dahulu bersenang senang kemudian*." kini para pasangan ini bisa kembali reuni dengan pasangan masing-masing. Dari banyak pasangan itu termasuk juga didalamnya kita berdua. Pada 8 Agustus akhrinya setelah beberapa bulan menggebu-gebu ikut menyuarakan kampanye #LoveIsNotTourism, pemerintah Jerman melalui BMI (*Bundesministerium des Innern, für Bau und Heimat) di akun resmi twitter mereka dan websitenya mengumumkan berita bahagia ini:*
