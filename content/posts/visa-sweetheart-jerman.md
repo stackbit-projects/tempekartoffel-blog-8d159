@@ -144,6 +144,7 @@ Karena judulnya visa sweetheart, tentu saja tujuannya adalah untuk ketemu pasang
 
 Ini ada dua jenis:
 ⦁	Declaration of existence relationship: kamu pakai form ini kalau pasangan kamu di Jerman mau mengundang kamu datang ke Jerman.
+
 ⦁	Urgent reason for entry: kamu pakai form ini kalau pasangan kamu posisinya ada di Indonesia dan mau mengundang kamu ke Jerman, sehingga kalian akan travel bersama-sama ke Jerman.
 
 12\. Print appointment confirmation
