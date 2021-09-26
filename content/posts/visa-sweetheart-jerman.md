@@ -135,6 +135,7 @@ https://jakarta.diplo.de/blob/2479002/467db3d01851eb5f6d0945b8a8616b87/rkv-nur-l
 Karena judulnya visa sweetheart, tentu saja tujuannya adalah untuk ketemu pasangan. Jadi dokumen yang kalian perlu adalah:
 ⦁	Surat undangan personal
 
+
 ⦁	Personalausweis pasangan
 ⦁	Bukti hubungan (Transkrip chat atau voice/video call Whatsapp, email, foto-foto)
 ⦁	Passport stamps (misalnya waktu kamu ke Jerman atau waktu pasangan kamu ke Indonesia)
