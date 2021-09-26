@@ -113,7 +113,8 @@ Booking hotel confirmation, atau kalau tinggal dengan pasangan sertakan Mietvert
 ⦁	Mahasiswa: bukti aktif kuliah --> translate
 
 8\. Booking flight
-Gak harus tiket yang sudah issued, bisa pakai dummy tiket.
+Gak harus tiket yang sudah issued, bisa pakai dummy tiket. 
+
 
 9\. Asuransi kesehatan perjalanan
 
