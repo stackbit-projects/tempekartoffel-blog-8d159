@@ -152,7 +152,7 @@ Ini ada dua jenis:
 
 12\. Print appointment confirmation
 ![](https://i2.lensdump.com/i/gZYLFk.jpg)
-[Print Appointment Confirmation](https://i2.lensdump.com/i/gZYLFk.jpg)
+[Link: Print Appointment Confirmation](https://i2.lensdump.com/i/gZYLFk.jpg)
 
 
 
