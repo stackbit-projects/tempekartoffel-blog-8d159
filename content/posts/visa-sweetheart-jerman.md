@@ -150,5 +150,6 @@ Ini ada dua jenis:
 
 12\. Print appointment confirmation
 
+
 13\. Biaya visa
 80€ dalam rupiah sekitar 1.350.000 tergantung currency saat itu. Saran kita bawa pecahan uang kecil-besar.![](https://twitter.com/BMI_Bund/status/1291979153416138752?s=20)
