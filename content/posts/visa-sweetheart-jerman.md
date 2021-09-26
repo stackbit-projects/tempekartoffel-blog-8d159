@@ -154,7 +154,7 @@ Ini ada dua jenis:
     ![](https://i2.lensdump.com/i/gZYzSM.jpg)
     [Link: Erklärung zur Beziehung](https://i2.lensdump.com/i/gZYzSM.jpg?open=true)
     ![](https://i1.lensdump.com/i/gZYxI9.jpg)
-    [Link: English Form]
+    [Link: English Form for visit of an unmarried partner into Germany]()
 
 *   Urgent reason for entry: kamu pakai form ini kalau pasangan kamu posisinya ada di Indonesia dan mau mengundang kamu ke Jerman, sehingga kalian akan travel bersama-sama ke Jerman.
 
