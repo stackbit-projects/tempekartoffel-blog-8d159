@@ -168,7 +168,6 @@ So, semoga kalian para pejuang LDR bisa reunited again ya!
 Di bawah ini ada check list dokumen yang bisa kalian download 
 ![](https://i3.lensdump.com/i/gZYSxQ.png)
 
-
 untuk memudahkan kalian mengatur berkas untuk diserahkan ke VFS, viel Glück! 
 
 Love,
