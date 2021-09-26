@@ -156,7 +156,7 @@ Ini ada dua jenis:
     ![](https://i1.lensdump.com/i/gZYxI9.jpg)
     [Link: English form for visit of an unmarried partner into Germany](https://jakarta.diplo.de/blob/2478694/ddc4dddcee804acc8f3cb587388974c8/erklaerung-zur-beziehung-besuch-data.pdf)
     ![](https://i.lensdump.com/i/gZYbFo.jpg)
-    [Link: English form for joint-visit when both partners travel i]
+    [Link: English form for joint-visit when both partners travel into Germany together]()
 
 *   Urgent reason for entry: kamu pakai form ini kalau pasangan kamu posisinya ada di Indonesia dan mau mengundang kamu ke Jerman, sehingga kalian akan travel bersama-sama ke Jerman.
 
