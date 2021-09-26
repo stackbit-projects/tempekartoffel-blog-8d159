@@ -42,6 +42,8 @@ Atau kalian juga bisa ke Konsul Kehormatan Jerman di Sanur (Bali), Medan (Sumatr
 
 1.  Formulir pendaftaran permohonan visa (visa application form)
 
+![](https://i2.lensdump.com/i/gZYcRm.jpg)
+
 Kalian bisa download link untuk mengisi formulir di sini:
 
 [https://videx.diplo.de/videx/desktop/index.html#start](https://videx.diplo.de/videx/desktop/index.html#start2.)
