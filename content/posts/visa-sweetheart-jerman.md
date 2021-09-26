@@ -122,6 +122,9 @@ Itinerary, kalian gak harus buat tapi kita selalu buat walaupun cuma akan stay d
 
 ⦁	Valid selama masa tinggal di Jerman
 ⦁	Minimal cakupan 30.000€ mencakup evakuasi dan repatriasi
+![](https://lensdump.com/i/gZYY0x)
+![](https://lensdump.com/i/gZYY0x)
+
 
 Kita pakai AXA, sehari harganya 1€, jadi karena waktu itu kita apply untuk 88-89 hari kita bayar 89€. Kita selalu pakai AXA karena gampang, bisa beli online, semua dokumen juga dikirim lewat email setelah pembayaran.
 Link pihak asuransi Schengen yang sesuai standar:
