@@ -116,6 +116,7 @@ Booking hotel confirmation, atau kalau tinggal dengan pasangan sertakan Mietvert
 Gak harus tiket yang sudah issued, bisa pakai dummy tiket. 
 Itinerary, kalian gak harus buat tapi kita selalu buat walaupun cuma akan stay di kota tempat tinggal pasangan, contohnya seperti ini:
 
+
 9\. Asuransi kesehatan perjalanan
 
 ⦁	Valid selama masa tinggal di Jerman
