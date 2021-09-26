@@ -64,9 +64,9 @@ https://jakarta.diplo.de/blob/2480132/d153cf2efc27d5b64e4e6bebd56f2e25/einversta
 
 3\. Paspport
 
-⦁	Berlaku tidak kurang dari 3 bulan dari masa nerakhir visa yang diminta
-⦁	Masih berlaku tidak lebih 10 tahun
-⦁	Masih ada 2 halaman kosong
+- Berlaku tidak kurang dari 3 bulan dari masa nerakhir visa yang diminta
+- Masih berlaku tidak lebih 10 tahun
+- Masih ada 2 halaman kosong
 
 4\. Pass foto
 
