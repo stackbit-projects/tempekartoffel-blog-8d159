@@ -55,6 +55,9 @@ Kalian bisa download link untuk mengisi formulir di sini:
 
 [2.](https://videx.diplo.de/videx/desktop/index.html#start2.) Lembar Pernyataan Perjalanan
 
+![](https://i.lensdump.com/i/gZYoBH.jpg)
+![](https://i.lensdump.com/i/gZYoBH.jpg)
+
 Kalian bisa download link untuk mengisi formulir di sini:
 https://jakarta.diplo.de/blob/1807778/6ca7f1bf2c528816f5533155e46c133e/belehrungen---reiseverlauf-data.pdf
 
