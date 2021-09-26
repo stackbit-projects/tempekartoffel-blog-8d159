@@ -4,7 +4,7 @@ has_more_link: true
 more_link_text: Keep reading
 seo:
   title: Tempe & Kartoffel
-  description: The preview of the Fjord theme
+  description: Tempe & Kartoffel
   extra:
     - name: 'og:type'
       value: website
