@@ -23,7 +23,7 @@ seo:
   extra: []
 layout: post
 title: BIKIN VISA SWEETHEART KE JERMAN DI MASA PANDEMI
-thumb_img_path: images/IMG_6225.JPG
+thumb_img_path: images/Header-min(1).jpg
 ---
 ## Pandemi kini bukan penghalang lagi
 
