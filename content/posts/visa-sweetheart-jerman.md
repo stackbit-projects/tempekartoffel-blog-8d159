@@ -115,6 +115,7 @@ Booking hotel confirmation, atau kalau tinggal dengan pasangan sertakan Mietvert
 8\. Booking flight
 Gak harus tiket yang sudah issued, bisa pakai dummy tiket. 
 Itinerary, kalian gak harus buat tapi kita selalu buat walaupun cuma akan stay di kota tempat tinggal pasangan, contohnya seperti ini:
+![](https://i.lensdump.com/i/gZYfeZ.jpg)
 
 
 9\. Asuransi kesehatan perjalanan
