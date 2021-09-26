@@ -55,7 +55,7 @@ Kalian bisa download link untuk mengisi formulir di sini:
 
 [2.](https://videx.diplo.de/videx/desktop/index.html#start2.) Lembar Pernyataan Perjalanan
 
-![](https://i.lensdump.com/i/gZYoBH.jpg)
+![](https://i2.lensdump.com/i/gZYN2c.jpg)
 ![](https://i.lensdump.com/i/gZYoBH.jpg)
 
 Kalian bisa download link untuk mengisi formulir di sini:
