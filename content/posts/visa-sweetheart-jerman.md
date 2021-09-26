@@ -121,7 +121,7 @@ Booking hotel confirmation, atau kalau tinggal dengan pasangan sertakan Mietvert
 Gak harus tiket yang sudah issued, bisa pakai dummy tiket. 
 Itinerary, kalian gak harus buat tapi kita selalu buat walaupun cuma akan stay di kota tempat tinggal pasangan, contohnya seperti ini:
 ![](https://i3.lensdump.com/i/gZYY0x.jpg)
-[Link: Itinerary Example](https://i3.lensdump.com/i/gZYY0x.jpg)
+[Link: Itinerary Example](https://i3.lensdump.com/i/gZYY0x.jpg?open=true)
 
 
 9\. Asuransi kesehatan perjalanan
@@ -129,9 +129,9 @@ Itinerary, kalian gak harus buat tapi kita selalu buat walaupun cuma akan stay d
 ⦁	Valid selama masa tinggal di Jerman
 ⦁	Minimal cakupan 30.000€ mencakup evakuasi dan repatriasi
 ![](https://i1.lensdump.com/i/gZYvpe.jpg)
-[Link: Insurance Part 1](https://i1.lensdump.com/i/gZYvpe.jpg)
+[Link: Insurance Part 1](https://i1.lensdump.com/i/gZYvpe.jpg?open=true)
 ![](https://i.lensdump.com/i/gZYH2q.jpg)
-[Link: Insurance Part 1](https://i.lensdump.com/i/gZYH2q.jpg)
+[Link: Insurance Part 1](https://i.lensdump.com/i/gZYH2q.jpg?open=true)
 
 
 Kita pakai AXA, sehari harganya 1€, jadi karena waktu itu kita apply untuk 88-89 hari kita bayar 89€. Kita selalu pakai AXA karena gampang, bisa beli online, semua dokumen juga dikirim lewat email setelah pembayaran.
