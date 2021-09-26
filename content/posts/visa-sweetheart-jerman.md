@@ -1,7 +1,20 @@
 ---
 date: '2021-09-24'
 thumb_img_alt: lorem-ipsum
-excerpt: lorem-ipsum
+excerpt: >-
+  Mungkin tahun 2019-2021 merupakan tahun tahun terberat bagi banyak pasangan
+  LDR (long distance relationship), apalagi yang ketemunya cuma bisa setahun
+  sekali. Tapi seperti pepatah “Berakit-rakit ke hulu berenang ke tepian,
+  bersakit-sakit dahulu bersenang senang kemudian.”
+   kini para pasangan ini bisa kembali reuni dengan pasangan 
+  masing-masing. Dari banyak pasangan itu termasuk juga didalamnya kita 
+
+  berdua. Pada 8 Agustus akhrinya setelah beberapa bulan menggebu-gebu 
+
+  ikut menyuarakan kampanye #LoveIsNotTourism, pemerintah Jerman melalui 
+
+  BMI (Bundesministerium des Innern, für Bau und Heimat) di akun resmi twitter
+  mereka dan websitenya mengumumkan berita bahagia ini:
 hide_header: false
 seo:
   title: ''
