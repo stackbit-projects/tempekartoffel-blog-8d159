@@ -71,9 +71,9 @@ https://jakarta.diplo.de/blob/2480132/d153cf2efc27d5b64e4e6bebd56f2e25/einversta
 4\. Pass foto
 
 Aturan pass foto adalah:
-⦁	Ukuran 3,5 x 4,5 cm
-⦁	Warna putih atau abu-abu terang
-⦁	Wajah harus mencakup 80 % foto
+- Ukuran 3,5 x 4,5 cm
+- Warna putih atau abu-abu terang
+- Wajah harus mencakup 80 % foto
 
 Contoh foto:
 https://www.bundesdruckerei.de/system/files/dokumente/pdf/Sample-Photos-For-ID-Documents.pdf
