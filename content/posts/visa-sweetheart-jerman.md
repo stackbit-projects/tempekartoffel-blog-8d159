@@ -146,6 +146,7 @@ Ini ada dua jenis:
 ⦁	Declaration of existence relationship: kamu pakai form ini kalau pasangan kamu di Jerman mau mengundang kamu datang ke Jerman.
 ![](https://i2.lensdump.com/i/gZYzSM.jpg)
 
+
 ⦁	Urgent reason for entry: kamu pakai form ini kalau pasangan kamu posisinya ada di Indonesia dan mau mengundang kamu ke Jerman, sehingga kalian akan travel bersama-sama ke Jerman.
 
 12\. Print appointment confirmation
