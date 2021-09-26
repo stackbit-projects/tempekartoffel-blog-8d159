@@ -85,7 +85,9 @@ https://www.bundesdruckerei.de/system/files/dokumente/pdf/Sample-Photos-For-ID-D
 ⦁	Biaya orang tua/keluarga: buku tabungan/rekening 3 bulan terakhir + Kartu Keluarga / Akta Kelahiran
 ⦁	Biaya pasangan di Jerman: Verpflichtungserklärung (VE):
 ![](https://i3.lensdump.com/i/gZYPJK.jpg)
+[Link: Verpflichtungserklärung Front](https://i3.lensdump.com/i/gZYPJK.jpg)
 ![](https://i.lensdump.com/i/gZYfeZ.jpg)
+[Link: Verpflichtungserklärung Front](https://i3.lensdump.com/i/gZYPJK.jpg)
 
 Dokumen membuat VE oleh pasangan kalian ke Ausländerbehörde:
 ⦁	Mietvertrag (kontrak termpat tinggal)
