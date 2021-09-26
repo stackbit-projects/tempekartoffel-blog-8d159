@@ -154,7 +154,7 @@ Ini ada dua jenis:
     ![](https://i2.lensdump.com/i/gZYzSM.jpg)
     [Link: Erklärung zur Beziehung](https://i2.lensdump.com/i/gZYzSM.jpg?open=true)
     ![](https://i1.lensdump.com/i/gZYxI9.jpg)
-    [Link: English Form for visit of an unmarried partner into Germany](https://jakarta.diplo.de/blob/2478694/ddc4dddcee804acc8f3cb587388974c8/erklaerung-zur-beziehung-besuch-data.pdf)
+    [Link: English form for visit of an unmarried partner into Germany](https://jakarta.diplo.de/blob/2478694/ddc4dddcee804acc8f3cb587388974c8/erklaerung-zur-beziehung-besuch-data.pdf)
     ![](https://i.lensdump.com/i/gZYbFo.jpg)
     [Link: English form]
 
