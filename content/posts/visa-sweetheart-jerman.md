@@ -125,7 +125,7 @@ Itinerary, kalian gak harus buat tapi kita selalu buat walaupun cuma akan stay d
 ![](https://i1.lensdump.com/i/gZYvpe.jpg)
 [Link: Insurance Part 1](https://i1.lensdump.com/i/gZYvpe.jpg)
 ![](https://i.lensdump.com/i/gZYH2q.jpg)
-[Link: Insurance Part 1]()
+[Link: Insurance Part 1](https://i.lensdump.com/i/gZYH2q.jpg)
 
 
 Kita pakai AXA, sehari harganya 1€, jadi karena waktu itu kita apply untuk 88-89 hari kita bayar 89€. Kita selalu pakai AXA karena gampang, bisa beli online, semua dokumen juga dikirim lewat email setelah pembayaran.
