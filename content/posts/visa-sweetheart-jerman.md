@@ -25,7 +25,6 @@ layout: post
 title: BIKIN VISA SWEETHEART KE JERMAN DI MASA PANDEMI
 thumb_img_path: images/Header-min(1).jpg
 ---
-
 ![](https://i2.lensdump.com/i/gZYcRm.jpg)
 
 ## Pandemi kini bukan penghalang lagi
@@ -49,10 +48,7 @@ Kalian bisa download link untuk mengisi formulir di sini:
 
 [https://videx.diplo.de/videx/desktop/index.html#start](https://videx.diplo.de/videx/desktop/index.html#start2.)
 
-Formulir pendaftaran permohonan visa (visa application form)
-Kalian bisa download link untuk mengisi formulir di sini:
 
-[https://videx.diplo.de/videx/desktop/index.html#start](https://videx.diplo.de/videx/desktop/index.html#start2.)
 
 [2.](https://videx.diplo.de/videx/desktop/index.html#start2.) Lembar Pernyataan Perjalanan
 
@@ -118,11 +114,10 @@ Booking hotel confirmation, atau kalau tinggal dengan pasangan sertakan Mietvert
 ⦁	Mahasiswa: bukti aktif kuliah --> translate
 
 8\. Booking flight
-Gak harus tiket yang sudah issued, bisa pakai dummy tiket. 
+Gak harus tiket yang sudah issued, bisa pakai dummy tiket.
 Itinerary, kalian gak harus buat tapi kita selalu buat walaupun cuma akan stay di kota tempat tinggal pasangan, contohnya seperti ini:
 ![](https://i3.lensdump.com/i/gZYY0x.jpg)
 [Link: Itinerary Example](https://i3.lensdump.com/i/gZYY0x.jpg?open=true)
-
 
 9\. Asuransi kesehatan perjalanan
 
@@ -132,7 +127,6 @@ Itinerary, kalian gak harus buat tapi kita selalu buat walaupun cuma akan stay d
 [Link: Insurance Part 1](https://i1.lensdump.com/i/gZYvpe.jpg?open=true)
 ![](https://i.lensdump.com/i/gZYH2q.jpg)
 [Link: Insurance Part 1](https://i.lensdump.com/i/gZYH2q.jpg?open=true)
-
 
 Kita pakai AXA, sehari harganya 1€, jadi karena waktu itu kita apply untuk 88-89 hari kita bayar 89€. Kita selalu pakai AXA karena gampang, bisa beli online, semua dokumen juga dikirim lewat email setelah pembayaran.
 Link pihak asuransi Schengen yang sesuai standar:
@@ -161,8 +155,6 @@ Ini ada dua jenis:
 12\. Print appointment confirmation
 ![](https://i2.lensdump.com/i/gZYLFk.jpg)
 [Link: Print Appointment Confirmation](https://i2.lensdump.com/i/gZYLFk.jpg?open=true)
-
-
 
 13\. Biaya visa
 80€ dalam rupiah sekitar 1.350.000 tergantung currency saat itu. Saran kita bawa pecahan uang kecil-besar.![](https://twitter.com/BMI_Bund/status/1291979153416138752?s=20)
