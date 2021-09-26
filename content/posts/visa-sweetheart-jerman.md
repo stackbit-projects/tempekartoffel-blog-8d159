@@ -141,7 +141,7 @@ Karena judulnya visa sweetheart, tentu saja tujuannya adalah untuk ketemu pasang
     [Link: Einladungsschreiben](https://i1.lensdump.com/i/gZYlJA.jpg?open=true)
 
     ![](https://i2.lensdump.com/i/gZo2ez.png)
-    [Link: Invitation letter](https://i2.lensdump.com/i/gZo2ez.png?open=true)
+    [Link: Invitation letter ()](https://i2.lensdump.com/i/gZo2ez.png?open=true)
 
 *   Personalausweis pasangan
 
@@ -159,7 +159,7 @@ Ini ada dua jenis:
 
     ![](https://i1.lensdump.com/i/gZYxI9.jpg)
     [Link: English form for visit of an unmarried partner into Germany](https://jakarta.diplo.de/blob/2478694/ddc4dddcee804acc8f3cb587388974c8/erklaerung-zur-beziehung-besuch-data.pdf)
-    
+
     ![](https://i.lensdump.com/i/gZYbFo.jpg)
     [Link: English form for joint-visit when both partners travel into Germany together](https://jakarta.diplo.de/blob/2478692/2a10bd4fee7bc12676772a0d21558109/20201119-erklaerung-beziehung-und-zwingender-einreisegrund-data.pdf)
 
