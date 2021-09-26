@@ -58,6 +58,7 @@ Kalian bisa download link untuk mengisi formulir di sini:
 ![](https://i2.lensdump.com/i/gZYN2c.jpg)
 [Link](https://i2.lensdump.com/i/gZYN2c.jpg)
 ![](https://i1.lensdump.com/i/gZYuo1.jpg)
+[Link](https://i1.lensdump.com/i/gZYuo1.jpg)
 
 Kalian bisa download link untuk mengisi formulir di sini:
 https://jakarta.diplo.de/blob/1807778/6ca7f1bf2c528816f5533155e46c133e/belehrungen---reiseverlauf-data.pdf
