@@ -97,5 +97,4 @@ Jalan sedikit, agak naik ya sekali lagi. Setelah itu kalian bakal sampe di view 
 So, always BE CAREFUL!
 
 Beginilah pemandangan dari view point ini:
-![](https://i3.lensdump.com/i/g6LsBT.jpg?open=true
-)
+![](https://i3.lensdump.com/i/g6LsBT.jpg?open=true)
