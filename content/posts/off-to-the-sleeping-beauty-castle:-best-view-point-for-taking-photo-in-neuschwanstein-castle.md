@@ -89,6 +89,6 @@ Nah kalau kalian udah lewatin pagar tadi, lihat ke arah kanan ya. Memang gak ada
 
 Nah setelah itu kalian bakal ketemu bekas jalan setapak yang ada tangganya, old trail yang udah gak dipakai gitu. Kaya gini:
 
-![](https://i3.lensdump.com/i/g6L91v.jpg?open=true)
+![](https://i1.lensdump.com/i/g6Lqf5.jpg?open=true)
 
 
