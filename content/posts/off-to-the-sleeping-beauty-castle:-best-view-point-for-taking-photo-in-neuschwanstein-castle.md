@@ -10,7 +10,7 @@ seo:
   robots: []
   extra: []
 layout: post
-subtitle: Ada lho alternatif view point buat menikmati pemand
+subtitle: Ada lho altd
 ---
 ## Lorem ipsum
 
