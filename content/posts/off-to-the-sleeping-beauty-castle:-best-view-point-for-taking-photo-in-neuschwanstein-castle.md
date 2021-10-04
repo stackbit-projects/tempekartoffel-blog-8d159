@@ -68,3 +68,5 @@ Karena kita jalan kaki, dari jalan setapak tadi tetep kok sampainya di jalan off
 
 Nanti akan sampai di sini:
 ![](https://i.lensdump.com/i/g6LCCo.jpg?open=true)
+
+Nah kal
