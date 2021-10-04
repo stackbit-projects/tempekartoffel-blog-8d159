@@ -10,7 +10,7 @@ seo:
   robots: []
   extra: []
 layout: post
-subtitle: 'Ada lho alternatif '
+subtitle: 'Ada lho alternatif view point buat menikmati pemandangan '
 ---
 ## Lorem ipsum
 
