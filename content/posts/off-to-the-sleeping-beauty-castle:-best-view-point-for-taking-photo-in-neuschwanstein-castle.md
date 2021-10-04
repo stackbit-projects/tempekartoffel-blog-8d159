@@ -56,7 +56,7 @@ Oh ya sebelum lanjut, kalian harus tahu kalau mau ke kastil cuma bisa jalan kaki
 
 *   Kalau mau jalan kaki kaya kami
 
-Setelah parkir di zona P1, kita jalan sampe Hotel Alpenstuben. Di depan hotel ini ada jalan setapak masuk ke hutan. 
+Setelah parkir di zona P1, kita jalan sampe Hotel Alpenstuben. Di depan hotel ini ada jalan setapak masuk ke hutan.
 
 *   Kalau mau naik delman kalian harus jalan dari parkiran mobil ke gambar delman biru itu gaes.
 
@@ -69,8 +69,12 @@ Karena kita jalan kaki, dari jalan setapak tadi tetep kok sampainya di jalan off
 Nanti akan sampai di sini:
 ![](https://i.lensdump.com/i/g6LCCo.jpg?open=true)
 
-Nah diujung jalan belokan ini juga merupakan salah satu view point ke arah Hohenschwangau kastil dan danau di bawah kastil. Seperti ini:
+**Nah diujung jalan belokan ini juga merupakan salah satu view point ke arah Hohenschwangau kastil dan danau di bawah kastil. Seperti ini:**
+
+
 ![](https://i.lensdump.com/i/g6LnIA.jpg?open=true)
 
 ![](https://i1.lensdump.com/i/g6LvBM.jpg?open=true)
+
+Kalau sudah sampai dititik ini kalian lihat ke arah pagar barbed wire di sebelah kanan, itu ada disalah satu bagiannya rusak, sampai kita kesana terakhir masih belum dibenerin. Jadi kita bisa nerobos masuk. Kaya gini:
 
