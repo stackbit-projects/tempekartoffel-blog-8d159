@@ -54,12 +54,13 @@ Nah, setelah cari-cari dan nyocokin juga lokasi dari beberapa foto orang-orang n
 
 Oh ya sebelum lanjut, kalian harus tahu kalau mau ke kastil cuma bisa jalan kaki, naik bus, atau naik delman ya. Mobil pribadi cuma sampai diparkiran bawah aja. Gak jauh tapi ya lumayan karena naik bukti sedikit. Kira-kira kaya gini kalau dilihat dari peta:
 
-*   Jalan kaki: dari parkiran jalan ke Hotel Alpenstuben, nanti ada jalan setapak masuk ke hutan.
+*   Kalau mau jalan kaki kaya kami
 
-*   Naik delman: cari ikon delman biru, dari situ kalian bisa naik delman.
+Setelah parkir di zona P1, kita jalan sampe Hotel Alpenstuben. Di depan hotel ini ada jalan setapak masuk ke hutan. 
 
-*   Naik bus: ke halte bus, tandanya H besar ya.
+*   Kalau mau naik delman kalian harus jalan dari parkiran mobil ke gambar delman biru itu gaes.
+
+*   Kalau naik bis kalian nunggu di halte bus, tandanya huruf H besar ya.
 
 ![](https://i.lensdump.com/i/g6LOx3.webp?open=true)
-
 
