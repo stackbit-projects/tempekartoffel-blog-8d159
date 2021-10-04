@@ -86,3 +86,4 @@ Nah sebenarnya ke view point ini ada jalan satunya lagi, yaitu lewat jalan offic
 Nah kalau kalian udah lewatin pagar tadi, lihat ke arah kanan ya. Memang gak ada petunjuk jalannya, tapi keliatan kok kalau ada bekas jalan setapak kecil. Kaya Stefan di foto ini. 
 
 ![](https://i3.lensdump.com/i/g6L91v.jpg?open=true)
+
