@@ -96,3 +96,4 @@ Jalan sedikit, agak naik ya sekali lagi. Setelah itu kalian bakal sampe di view 
 
 So, always BE CAREFUL!
 
+
