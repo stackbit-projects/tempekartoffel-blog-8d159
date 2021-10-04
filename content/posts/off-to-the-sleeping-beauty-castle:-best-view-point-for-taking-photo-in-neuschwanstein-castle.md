@@ -10,9 +10,7 @@ seo:
   robots: []
   extra: []
 layout: post
-subtitle: >-
-  Ada lho alternatif view point buat menikmati pemandangan Kastil paling
-  terkenal se-Jerman ini
+subtitle: Ada lho alternatif view point buat menikmati pemand
 ---
 ## Lorem ipsum
 
