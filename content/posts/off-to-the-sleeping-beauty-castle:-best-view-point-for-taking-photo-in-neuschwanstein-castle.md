@@ -92,3 +92,4 @@ Nah setelah itu kalian bakal ketemu bekas jalan setapak yang ada tangganya, old 
 ![](https://i1.lensdump.com/i/g6Lqf5.jpg?open=true)
 
 
+
