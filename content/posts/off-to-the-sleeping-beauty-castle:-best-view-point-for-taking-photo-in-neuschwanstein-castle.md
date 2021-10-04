@@ -4,7 +4,8 @@ date: '2021-10-04'
 thumb_img_alt: lorem-ipsum
 excerpt: >-
   Ada lho alternatif yang menurut kita paling oke buat menikmati pemandangan
-  kastil paling terkenal se-Jerman ini, keep reading yak :) 
+  kastil paling terkenal se-Jerman ini, penasaran? langsung aja gaes klik di
+  bawah ini :)
 hide_header: false
 seo:
   title: ''
