@@ -2,7 +2,9 @@
 title: 'Off to Sleeping Beauty Castle: BEST VIEW POINT OF NEUSCHWANSTEIN'
 date: '2021-10-04'
 thumb_img_alt: lorem-ipsum
-excerpt: 'Ada lho alternatif yang menurut kita '
+excerpt: >-
+  Ada lho alternatif yang menurut kita paling oke buat menikmati pemandangan
+  kastil paling terkenal se-Jerman ini
 hide_header: false
 seo:
   title: ''
