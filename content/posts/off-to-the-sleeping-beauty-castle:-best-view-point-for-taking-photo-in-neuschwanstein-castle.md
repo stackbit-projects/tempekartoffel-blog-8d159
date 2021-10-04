@@ -54,6 +54,6 @@ Nah, setelah cari-cari dan nyocokin juga lokasi dari beberapa foto orang-orang n
 
 Oh ya sebelum lanjut, kalian harus tahu kalau mau ke kastil cuma bisa jalan kaki, naik bus, atau naik delman ya. Mobil pribadi cuma sampai diparkiran bawah aja. Gak jauh tapi ya lumayan karena naik bukti sedikit. Kira-kira kaya gini kalau dilihat dari peta:
 
-(https://i1.lensdump.com/i/gZYlJA.jpg?open=true)
+(lensdump.com/i/g6LOx3.webp?open=true)
 
 ![](images/IMG\_4388.JPG)
