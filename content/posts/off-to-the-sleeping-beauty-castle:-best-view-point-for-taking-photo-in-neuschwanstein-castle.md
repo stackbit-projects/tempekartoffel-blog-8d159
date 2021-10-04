@@ -61,3 +61,5 @@ Oh ya sebelum lanjut, kalian harus tahu kalau mau ke kastil cuma bisa jalan kaki
 *   Naik bus: ke halte bus, tandanya H besar ya.
 
 ![](https://i.lensdump.com/i/g6LOx3.webp?open=true)
+
+
