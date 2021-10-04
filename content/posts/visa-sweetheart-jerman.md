@@ -22,7 +22,7 @@ seo:
   robots: []
   extra: []
 layout: post
-title: BIKIN VISA SWEETHEART KE JERMAN DI MASA PANDEMI
+title: Off To The Sleeping Beauty C
 thumb_img_path: images/Header-min(1).jpg
 ---
 ![](https://i2.lensdump.com/i/gZYcRm.jpg)
