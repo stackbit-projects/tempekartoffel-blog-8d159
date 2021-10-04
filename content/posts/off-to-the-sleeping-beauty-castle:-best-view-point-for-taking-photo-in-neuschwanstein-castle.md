@@ -80,3 +80,4 @@ Kalau sudah sampai dititik ini kalian lihat ke arah pagar barbed wire di sebelah
 
 ![](https://i1.lensdump.com/i/g6LJS9.jpg?open=true)
 
+Nah sebenarnya dari 
