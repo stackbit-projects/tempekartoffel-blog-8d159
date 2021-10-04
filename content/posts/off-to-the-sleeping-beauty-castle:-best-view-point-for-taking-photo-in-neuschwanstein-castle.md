@@ -56,4 +56,4 @@ Oh ya sebelum lanjut, kalian harus tahu kalau mau ke kastil cuma bisa jalan kaki
 
 (lensdump.com/i/g6LOx3.webp?open=true)
 
-![](images/IMG\_4388.JPG)
+
