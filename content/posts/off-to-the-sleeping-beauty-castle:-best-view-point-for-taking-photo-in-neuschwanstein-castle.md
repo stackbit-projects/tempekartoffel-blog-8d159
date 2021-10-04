@@ -14,7 +14,7 @@ seo:
 layout: post
 thumb_img_path: images/IMG_5600.JPG
 ---
-## NEUSCHWANSTEIN CASTLE
+## SEJARAH NEUSCHWANSTEIN CASTLE
 
 Pasti banyak dari kalian yang udah tahu soal kastil ini ya kan???
 
@@ -30,9 +30,32 @@ Tapi dibalik masa kecilnya, ada juga alsan politik kenapa ia memerintahkan pemba
 alliance"*, yang membuat raja tidak bisa memerintah pasukannya dalam kondisi perang. Oleh karena itu dari tahun 1866, therefore, Ludwig II
 bukanlah lagi *sovereign ruler*. Di tahun 1867, ia ingin punya kerajaan yang adalah miliknya sendiri dalam bentuk kastil dan istana dimana ia bisa jadi raja yang sebenarnya.
 
-Tapi membangun sebuah kastil di atas bukti berbatu juga tidaklah mudah guys. Ia jadi punya banyak hutang karena ya kastil ini dibangun atas dasar imajinasi dan fantasinya. Hingga pada akhirnya pembangunan kastil ini harus dihentikan karena udah gak ada danaya lagi. Waktu itu dari 200 ruangan yang direncanakan hanya 15 yang sudah selesai. Sedihnya lagi, belum sempat pindah ke kastil impiannya, raja Ludwig II ditemukan meninggal. Sampai saat ini penyebab kematiannya masih jadi  misteri. 
+Tapi membangun sebuah kastil di atas bukti berbatu juga tidaklah mudah guys. Ia jadi punya banyak hutang karena ya kastil ini dibangun atas dasar imajinasi dan fantasinya. Hingga pada akhirnya pembangunan kastil ini harus dihentikan karena udah gak ada danaya lagi. Waktu itu dari 200 ruangan yang direncanakan hanya 15 yang sudah selesai. Sedihnya lagi, belum sempat pindah ke kastil impiannya, raja Ludwig II ditemukan meninggal. Sampai saat ini penyebab kematiannya masih jadi  misteri.
 
 Gimana menurut kalian? Dan menurut kami kastil ini walaupun cantik, ia menyimpan banyak cerita yang menurut kami sedih dan ironi. Ludwig II ingin menyendiri, ia tidak pernah punya rencana untuk membuka kastil ini ini untuk publik. Tapi dua minggu setelah kematiannya, kastil ini dibuka untuk turis.
 
 Begitulah kira-kira guys.
+
+## THE BEST VIEW POINT
+
+Nah, udahan cerita soal sejarahnya ya. Banyak orang termasuk kita juga ✌️ kesini karena pengen foto dengan background ikonik kastilnya. Ada beberapa view point disekitar kastil ini:
+
+1.  Paling terkenal: Marienbrücke
+
+Marienbrücke atau jembatan Maria atau dalam bahasa Inggris Mary's Bridge adalah view point paling terkenal, kalian pasti sering lihat di Instagram. Tapi waktu kita kesana. jembatan ini ditutup gaes karena alasan renovasi. Jadi kita waktu itu pas mau kesana langsung sedih aja, kita akhirnya lihat-lihat peta dan foto orang-orang. 
+
+Jembatan Mary ini bagus buat foto-foto tapi kalau dilihat dari foto orang-orang, apalagi waktu rame—wuihhhhh padet gaes. Kayanya buat mau ngambil foto tuh susah saking banyak manusia saling berdempetan. Jadi gak sedih-sedih banget akhirnya.
+
+
+
+2\. The Hidden Viewpoint
+
+Nah, setelah cari-cari dan nyocokin juga lokasi dari beberapa foto orang-orang nemulah tempat ini. Gak ada nama officialnya tapi wah gak nyesel deh karena puas banget.
+
+
+
+
+
+
+
 
