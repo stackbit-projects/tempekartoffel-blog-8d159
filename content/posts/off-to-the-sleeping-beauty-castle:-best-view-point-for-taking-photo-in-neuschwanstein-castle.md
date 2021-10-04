@@ -2,7 +2,7 @@
 title: 'Off to Sleeping Beauty Castle: BEST VIEW POINT OF NEUSCHWANSTEIN'
 date: '2021-10-04'
 thumb_img_alt: lorem-ipsum
-excerpt: lorem-ipsum
+excerpt: 'Ada lho alternatif yang menurut kita '
 hide_header: false
 seo:
   title: ''
