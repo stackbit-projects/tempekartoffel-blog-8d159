@@ -92,4 +92,6 @@ Nah setelah itu kalian bakal ketemu bekas jalan setapak yang ada tangganya, old 
 ![](https://i1.lensdump.com/i/g6Lqf5.jpg?open=true)
 ![](https://i2.lensdump.com/i/g6Lm0z.jpg?open=true)
 
-Jalan sedikit, agak naik ya sekali lagi. Setelah itu kalian bakal sampe di view point ini deh. Tapi kita ingatkan lagi ya, kalian harus hati-hati dan jaga diri masing-masing. View point ini gak ada di list jalur official karena letaknya ada dipinggir tebing, 
+Jalan sedikit, agak naik ya sekali lagi. Setelah itu kalian bakal sampe di view point ini deh. Tapi kita ingatkan lagi ya, kalian harus hati-hati dan jaga diri masing-masing. View point ini gak ada di list jalur official karena letaknya ada dipinggir tebing, kalau kalian gak hati-hati bisa jatuh ke jurang. 
+
+Jadi selalu 
