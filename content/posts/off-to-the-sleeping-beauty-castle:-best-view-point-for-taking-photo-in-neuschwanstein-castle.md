@@ -71,5 +71,6 @@ Nanti akan sampai di sini:
 
 Nah diujung jalan belokan ini juga merupakan salah satu view point ke arah Hohenschwangau kastil dan danau di bawah kastil. Seperti ini:
 ![](https://i.lensdump.com/i/g6LnIA.jpg?open=true)
+
 ![](https://i1.lensdump.com/i/g6LvBM.jpg?open=true)
 
