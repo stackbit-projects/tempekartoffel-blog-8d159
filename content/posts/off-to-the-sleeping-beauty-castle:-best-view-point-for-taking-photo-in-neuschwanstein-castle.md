@@ -67,4 +67,4 @@ Setelah parkir di zona P1, kita jalan sampe Hotel Alpenstuben. Di depan hotel in
 Karena kita jalan kaki, dari jalan setapak tadi tetep kok sampainya di jalan official menuju kastil. Kita cuma ambil jalan pendeknya aja lewat hutan.
 
 Nanti akan sampai di sini:
-![](https://i.lensdump.com/i/g6LOx3.webp?open=true)
+![](https://i.lensdump.com/i/g6LCCo.jpg?open=true)
