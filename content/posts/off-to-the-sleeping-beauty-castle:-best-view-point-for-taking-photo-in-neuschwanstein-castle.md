@@ -87,3 +87,5 @@ Nah kalau kalian udah lewatin pagar tadi, lihat ke arah kanan ya. Memang gak ada
 
 ![](https://i3.lensdump.com/i/g6L91v.jpg?open=true)
 
+Sebelum lanjut, kita mau ingetin dulu ya selalu jaga 
+
