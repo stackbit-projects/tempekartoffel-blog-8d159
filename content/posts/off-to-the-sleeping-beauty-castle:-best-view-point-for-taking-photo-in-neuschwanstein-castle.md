@@ -78,3 +78,4 @@ Nanti akan sampai di sini:
 
 Kalau sudah sampai dititik ini kalian lihat ke arah pagar barbed wire di sebelah kanan, itu ada disalah satu bagiannya rusak, sampai kita kesana terakhir masih belum dibenerin. Jadi kita bisa nerobos masuk. Kaya gini:
 
+
