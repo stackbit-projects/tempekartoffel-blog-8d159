@@ -22,7 +22,7 @@ seo:
   robots: []
   extra: []
 layout: post
-title: Off To The Sleeping Beauty C
+title: 'Off To The Sleeping Beauty Castle: Best VIE POINT Neuschwan'
 thumb_img_path: images/Header-min(1).jpg
 ---
 ![](https://i2.lensdump.com/i/gZYcRm.jpg)
