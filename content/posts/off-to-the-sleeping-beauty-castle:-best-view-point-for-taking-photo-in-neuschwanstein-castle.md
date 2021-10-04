@@ -12,6 +12,7 @@ seo:
   robots: []
   extra: []
 layout: post
+thumb_img_path: images/IMG_5600.JPG
 ---
 ## Lorem ipsum
 
