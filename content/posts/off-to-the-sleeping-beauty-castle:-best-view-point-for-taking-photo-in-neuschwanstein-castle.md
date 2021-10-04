@@ -83,6 +83,6 @@ Kalau sudah sampai dititik ini kalian lihat ke arah pagar barbed wire di sebelah
 
 Nah sebenarnya ke view point ini ada jalan satunya lagi, yaitu lewat jalan official ke arah Marienbrücke. Tapi sama juga, harus lewat pagar yang kabelnya rusak. Kita waktu pulang lewat yang dari sini.
 
-Nah kalau kalian udah lewatin pagar tadi, 
+Nah kalau kalian udah lewatin pagar tadi, lihat 
 
 ![](https://i3.lensdump.com/i/g6L91v.jpg?open=true)
