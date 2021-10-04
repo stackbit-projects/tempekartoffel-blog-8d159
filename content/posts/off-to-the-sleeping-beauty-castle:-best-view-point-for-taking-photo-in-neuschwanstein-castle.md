@@ -1,6 +1,5 @@
 ---
 title: 'Off to Sleeping Beauty Castle: BEST VIEW POINT OF NEUSCHWANSTEIN'
-subtitle: 'Alternative '
 date: '2021-10-04'
 thumb_img_alt: lorem-ipsum
 excerpt: lorem-ipsum
