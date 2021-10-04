@@ -42,20 +42,18 @@ Nah, udahan cerita soal sejarahnya ya. Banyak orang termasuk kita juga ✌️ ke
 
 1.  Paling terkenal: Marienbrücke
 
-Marienbrücke atau jembatan Maria atau dalam bahasa Inggris Mary's Bridge adalah view point paling terkenal, kalian pasti sering lihat di Instagram. Tapi waktu kita kesana. jembatan ini ditutup gaes karena alasan renovasi. Jadi kita waktu itu pas mau kesana langsung sedih aja, kita akhirnya lihat-lihat peta dan foto orang-orang. 
+Marienbrücke atau jembatan Maria atau dalam bahasa Inggris Mary's Bridge adalah view point paling terkenal, kalian pasti sering lihat di Instagram. Tapi waktu kita kesana. jembatan ini ditutup gaes karena alasan renovasi. Jadi kita waktu itu pas mau kesana langsung sedih aja, kita akhirnya lihat-lihat peta dan foto orang-orang.
 
 Jembatan Mary ini bagus buat foto-foto tapi kalau dilihat dari foto orang-orang, apalagi waktu rame—wuihhhhh padet gaes. Kayanya buat mau ngambil foto tuh susah saking banyak manusia saling berdempetan. Jadi gak sedih-sedih banget akhirnya.
-
-
 
 2\. The Hidden Viewpoint
 
 Nah, setelah cari-cari dan nyocokin juga lokasi dari beberapa foto orang-orang nemulah tempat ini. Gak ada nama officialnya tapi wah gak nyesel deh karena puas banget.
 
+### CARA KE VIEW POINT INI
+
+Oh ya sebelum lanjut, kalian harus tahu kalau mau ke kastil cuma bisa jalan kaki, naik bus, atau naik delman ya. Mobil pribadi cuma sampai diparkiran bawah aja. Gak jauh tapi ya lumayan karena naik bukti sedikit. Kira-kira kaya gini kalau dilihat dari peta:
 
 
 
-
-
-
-
+![](images/IMG\_4388.JPG)
