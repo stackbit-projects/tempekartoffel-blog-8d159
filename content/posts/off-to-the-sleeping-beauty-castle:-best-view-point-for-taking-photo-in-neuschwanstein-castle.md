@@ -71,7 +71,6 @@ Nanti akan sampai di sini:
 
 **Nah diujung jalan belokan ini juga merupakan salah satu view point ke arah Hohenschwangau kastil dan danau di bawah kastil. Seperti ini:**
 
-
 ![](https://i.lensdump.com/i/g6LnIA.jpg?open=true)
 
 ![](https://i1.lensdump.com/i/g6LvBM.jpg?open=true)
@@ -83,7 +82,7 @@ Kalau sudah sampai dititik ini kalian lihat ke arah pagar barbed wire di sebelah
 
 Nah sebenarnya ke view point ini ada jalan satunya lagi, yaitu lewat jalan official ke arah Marienbrücke. Tapi sama juga, harus lewat pagar yang kabelnya rusak. Kita waktu pulang lewat yang dari sini.
 
-Nah kalau kalian udah lewatin pagar tadi, lihat ke arah kanan ya. Memang gak ada petunjuk jalannya, tapi keliatan kok kalau ada bekas jalan setapak kecil. Kaya Stefan di foto ini. 
+Nah kalau kalian udah lewatin pagar tadi, lihat ke arah kanan ya. Memang gak ada petunjuk jalannya, tapi keliatan kok kalau ada bekas jalan setapak kecil. Kaya Stefan di foto ini.
 
 ![](https://i3.lensdump.com/i/g6L91v.jpg?open=true)
 
@@ -92,13 +91,15 @@ Nah setelah itu kalian bakal ketemu bekas jalan setapak yang ada tangganya, old 
 ![](https://i1.lensdump.com/i/g6Lqf5.jpg?open=true)
 ![](https://i2.lensdump.com/i/g6Lm0z.jpg?open=true)
 
-Jalan sedikit, agak naik ya sekali lagi. Setelah itu kalian bakal sampe di view point ini deh. Tapi kita ingatkan lagi ya, kalian harus hati-hati dan jaga diri masing-masing. View point ini gak ada di list jalur official karena letaknya ada dipinggir tebing, kalau kalian gak hati-hati bisa jatuh ke jurang. 
+Jalan sedikit, agak naik ya sekali lagi. Setelah itu kalian bakal sampe di view point ini deh. Tapi kita ingatkan lagi ya, kalian harus hati-hati dan jaga diri masing-masing. View point ini gak ada di list jalur official karena letaknya ada dipinggir tebing, kalau kalian gak hati-hati bisa jatuh ke jurang.
 
 Always BE CAREFUL!
 
 Beginilah pemandangan dari view point ini:
 ![](https://i3.lensdump.com/i/g6LsBT.jpg?open=true)
 
+So, semoga informasi ini berguna ya buat kalian yang udah masukkin kastil ini dalam bucket list Jerman kalian. 
 
+Love,
 
-
+Stefan & Monica 
