@@ -30,4 +30,9 @@ Tapi dibalik masa kecilnya, ada juga alsan politik kenapa ia memerintahkan pemba
 alliance"*, yang membuat raja tidak bisa memerintah pasukannya dalam kondisi perang. Oleh karena itu dari tahun 1866, therefore, Ludwig II
 bukanlah lagi *sovereign ruler*. Di tahun 1867, ia ingin punya kerajaan yang adalah miliknya sendiri dalam bentuk kastil dan istana dimana ia bisa jadi raja yang sebenarnya.
 
-Agak sedih ya? Dan menurut kami kastil ini walaupun cantik, ia menyimpan banyak cerita yang menurut kami sedih dan ironi. 
+Tapi membangun sebuah kastil di atas bukti berbatu juga tidaklah mudah guys. Ia jadi punya banyak hutang karena ya kastil ini dibangun atas dasar imajinasi dan fantasinya. Hingga pada akhirnya pembangunan kastil ini harus dihentikan karena udah gak ada danaya lagi. Waktu itu dari 200 ruangan yang direncanakan hanya 15 yang sudah selesai. Sedihnya lagi, belum sempat pindah ke kastil impiannya, raja Ludwig II ditemukan meninggal. Sampai saat ini penyebab kematiannya masih jadi  misteri. 
+
+Gimana menurut kalian? Dan menurut kami kastil ini walaupun cantik, ia menyimpan banyak cerita yang menurut kami sedih dan ironi. Ludwig II ingin menyendiri, ia tidak pernah punya rencana untuk membuka kastil ini ini untuk publik. Tapi dua minggu setelah kematiannya, kastil ini dibuka untuk turis.
+
+Begitulah kira-kira guys.
+
