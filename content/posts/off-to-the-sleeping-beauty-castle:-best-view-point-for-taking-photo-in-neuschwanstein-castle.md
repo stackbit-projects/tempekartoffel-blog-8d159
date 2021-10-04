@@ -10,7 +10,6 @@ seo:
   robots: []
   extra: []
 layout: post
-subtitle: Ada lho altd
 ---
 ## Lorem ipsum
 
